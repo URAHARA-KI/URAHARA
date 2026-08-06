@@ -1,4 +1,4 @@
-##### <p align="center"><img src="https://img.sanishtech.com/u/d40780ac4f3dd04cd1bfc2e079a7b8c1.gif" width="300" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/d339cfbe31c222469eebda2afddafa82.gif" width="300" height="auto" align="center"></img></a> <br>
 
 $${\color{#8AAF4B}jess}$$ $${\color{#C2BC92}or}$$ $${\color{#25A47A}urahara}$$ ㅤ $${\color{#C2BC92}◆}$$ $${\color{#8AAF4B}~~}$$ </br>
 
