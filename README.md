@@ -9,9 +9,8 @@ $${\color{#B7AE6C}jess}$$ $${\color{#40AA93}or}$$ $${\color{#B7AE6C}urahara}$$ ã
 $${\color{#40AA93}my}$$ $${\color{#B7AE6C}romance}$$ $${\color{#40AA93}dawn}$$ ã…¤ $${\color{#B7AE6C}trio}$$ $${\color{#40AA93}
 }$$ </br>
 
-        </td>
-    <tr>
   </table>
+</div>
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/8469c0b1fb2e8511a5bf4dcde87a3af0.png" width="200" height="auto" align="center"></img></a> <br>
 
