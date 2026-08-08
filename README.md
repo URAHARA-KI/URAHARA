@@ -26,3 +26,5 @@ $${\color{#B7AE6C}"luffy's}$$ $${\color{#40AA93}gonna}$$ $${\color{#B7AE6C}be}$$
 $${\color{#B7AE6C}won't}$$ $${\color{#40AA93}you}$$ $${\color{#B7AE6C}die}$$ ㅤ $${\color{#40AA93}tonight}$$ $${\color{#B7AE6C}for love}$$ </br>
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/3537ba65a048ac3a1c7e1d525cd09aa4.png" width="200" height="auto" align="center"></img></a> <br>
+
+</div>
