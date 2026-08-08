@@ -32,3 +32,4 @@ $${\color{#B7AE6C}won't}$$ $${\color{#40AA93}you}$$ $${\color{#B7AE6C}die}$$ ㅤ
 
 </div>
 
+![Views](https://komarev.com/ghpvc/?username=URAHARA-KI&color=40AA932&style=flat&label=romance dawn) 
