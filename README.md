@@ -1,4 +1,4 @@
-##### <p align="center"><img src="https://img.sanishtech.com/u/cbd7bd012e604d00049fc42d8d4c3197.png" width="300" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/cbd7bd012e604d00049fc42d8d4c3197.png" width="200" height="auto" align="center"></img></a> <br>
 
   <table border="0">
       <td align="center" valign="middle" width="30%">
