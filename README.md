@@ -29,3 +29,9 @@ $${\color{#B7AE6C}won't}$$ $${\color{#40AA93}you}$$ $${\color{#B7AE6C}die}$$ ㅤ
 ##### <p align="center"><img src="https://img.sanishtech.com/u/3537ba65a048ac3a1c7e1d525cd09aa4.png" width="300" height="auto" align="center"></img></a> <br>
 
 </div>
+
+##### <p align="center"><img src="https://img.sanishtech.com/u/3068e135920b7ae296b3040d9aa3ef5b.png" width="200" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/d6071a1d1c2217da217b4156f7554614.png" width="200" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/758e110a477d21e372c9a3fa38b0822c.png" width="200" height="auto" align="center"></img></a> <br>
+
+ some of my asl sketch ↑
