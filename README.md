@@ -3,8 +3,9 @@
   <table border="0">
       <td align="center" valign="middle" width="30%">
 
-$${\color{#8AAF4B}jess}$$ $${\color{#C2BC92}or}$$ $${\color{#25A47A}urahara}$$ ㅤ $${\color{#C2BC92}◆}$$ $${\color{#8AAF4B}~~}$$ </br>
+$${\color{#B7AE6C}jess}$$ $${\color{#40AA93}or}$$ $${\color{#B7AE6C}urahara}$$ ㅤ $${\color{#40AA93}□}$$ $${\color{#B7AE6C}~~}$$ </br>
 
-$${\color{#25A47A}follow}$$ $${\color{#C2BC92}my}$$ $${\color{#8AAF4B}main}$$ ㅤ $${\color{#C2BC92}oke}$$ $${\color{#25A47A}?}$$ </br>
+$${\color{#40AA93}my}$$ $${\color{#B7AE6C}romance}$$ $${\color{#40AA93}dawn}$$ ㅤ $${\color{#B7AE6C}trio}$$ $${\color{#40AA93}
+}$$ </br>
 
   <table border="0">
