@@ -4,7 +4,7 @@
   <table border="0">
       <td align="center" valign="middle" width="30%">
 
-$${\color{#B7AE6C}jess}$$ $${\color{#40AA93}or}$$ $${\color{#B7AE6C}urahara}$$ ㅤ $${\color{#40AA93}□}$$ $${\color{#B7AE6C}~~}$$ </br>
+$${\color{#B7AE6C}jess}$$ $${\color{#40AA93}or}$$ $${\color{#B7AE6C}urahara}$$ ㅤ $${\color{#40AA93}□}$$ $${\color{#B7AE6C}15}$$ </br>
 
 $${\color{#40AA93}my}$$ $${\color{#B7AE6C}romance}$$ $${\color{#40AA93}dawn}$$ ㅤ $${\color{#B7AE6C}trio}$$ $${\color{#40AA93}
 }$$ </br>
