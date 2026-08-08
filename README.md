@@ -1,5 +1,6 @@
 ##### <p align="center"><img src="https://img.sanishtech.com/u/cbd7bd012e604d00049fc42d8d4c3197.png" width="200" height="auto" align="center"></img></a> <br>
 
+<div align="center">
   <table border="0">
       <td align="center" valign="middle" width="30%">
 
@@ -9,8 +10,6 @@ $${\color{#40AA93}my}$$ $${\color{#B7AE6C}romance}$$ $${\color{#40AA93}dawn}$$ ã
 }$$ </br>
 
   <table border="0">
-      <td>
-    </tr>
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/8469c0b1fb2e8511a5bf4dcde87a3af0.png" width="200" height="auto" align="center"></img></a> <br>
 
@@ -27,6 +26,9 @@ $${\color{#B7AE6C}"luffy's}$$ $${\color{#40AA93}gonna}$$ $${\color{#B7AE6C}be}$$
 $${\color{#B7AE6C}won't}$$ $${\color{#40AA93}you}$$ $${\color{#B7AE6C}die}$$ ã…¤ $${\color{#40AA93}tonight}$$ $${\color{#B7AE6C}for love}$$ </br>
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/3537ba65a048ac3a1c7e1d525cd09aa4.png" width="200" height="auto" align="center"></img></a> <br>
+
+    </tr>
+      </td>
 
 </div>
 
