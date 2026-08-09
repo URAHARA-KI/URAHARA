@@ -34,4 +34,7 @@ $${\color{#D5D6AA}heavy}$$ $${\color{#FFFADA}c+h}$$ $${\color{#D5D6AA},}$$ ㅤ $
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/153d41529f7782d70ba7142fa371ddd1.gif" width="200" height="auto" align="center"></img></a> <br>
 
+  $${\color{#FFFADA}私の真の美しさ . .}$$
+
+  $${\color{#ecc59d}すべてを破壊する . .}$$
 
