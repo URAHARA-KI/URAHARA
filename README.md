@@ -9,6 +9,8 @@ $${\color{#FFFADA}𝓙ess}$$ $${\color{#D5D6AA}or}$$ $${\color{#FFFADA}𝓓awn}$
 $${\color{#D5D6AA}ある}$$ $${\color{#FFFADA}美しい}$$ $${\color{#D5D6AA}夜}$$ ㅤ $${\color{#FFFADA}もっている}$$ $${\color{#D5D6AA}
 来る}$$ </br>
 
+##### <p align="center"><img src="https://img.sanishtech.com/u/78f54eb07141954f08a4faad4b44b0a0.png" width="200" height="auto" align="center"></img></a> <br>
+
 ##### <p align="center"> [pt-stars](https://github.com/pt-stars)
 
 pretty skins
