@@ -1,6 +1,8 @@
 ##### <p align="center"><img src="https://img.sanishtech.com/u/43375aab05bf9b523e036a0974f51ae7.png" width="300" height="auto" align="center"></img></a> <br>
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&label=wings+ִֶָ🪽་༘&color=FFFADA)
+##### <p align="center"><img src="https://img.sanishtech.com/u/fe47e761eb642792e4f5bc83151d826c.png" width="200" height="auto" align="center"></img></a> <br>
+
 <div align="center">
   <table border="0">
       <td align="center" valign="middle" width="30%">
