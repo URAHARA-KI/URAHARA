@@ -6,8 +6,8 @@
 
 $${\color{#FFFADA}jess}$$ $${\color{#D5D6AA}or}$$ $${\color{#FFFADA}dawn}$$ ㅤ $${\color{#D5D6AA}.}$$ $${\color{#FFFADA}15}$$ </br>
 
-$${\color{#D5D6AA}my}$$ $${\color{#FFFADA}romance}$$ $${\color{#D5D6AA}dawn}$$ ㅤ $${\color{#FFFADA}trio}$$ $${\color{#D5D6AA}
-♡}$$ </br>
+$${\color{#D5D6AA}ある}$$ $${\color{#FFFADA}美しい}$$ $${\color{#D5D6AA}夜}$$ ㅤ $${\color{#FFFADA}もっている}$$ $${\color{#D5D6AA}
+来る}$$ </br>
 
 ##### <p align="center"> [pt-stars](https://github.com/pt-stars)
 
@@ -33,4 +33,5 @@ $${\color{#D5D6AA}heavy}$$ $${\color{#FFFADA}c+h}$$ $${\color{#D5D6AA},}$$ ㅤ $
 </div>
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/153d41529f7782d70ba7142fa371ddd1.gif" width="200" height="auto" align="center"></img></a> <br>
+
 
