@@ -1,6 +1,3 @@
-</div>
-
-![](https://komarev.com/ghpvc/?username=URAHARA-KI&label=wings+ִֶָ🪽་༘&color=FFFADA)
 ##### <p align="center"><img src="https://img.sanishtech.com/u/43375aab05bf9b523e036a0974f51ae7.png" width="300" height="auto" align="center"></img></a> <br>
 
 <div align="center">
@@ -25,6 +22,7 @@ prettiest gh
   </table>
 </div>
 
+![](https://komarev.com/ghpvc/?username=URAHARA-KI&label=wings+ִֶָ🪽་༘&color=FFFADA)
 ##### <p align="center"><img src="https://img.sanishtech.com/u/1a87315cedd3a8c1e488825d19d743ab.png" width="300" height="auto" align="center"></img></a> <br>
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/e1266a793daf5fc357dc6545c75f8cd7.png" width="200" height="auto" align="center"></img></a> <br>
