@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=URAHARA-KI&label=wings+ִֶָ🪽་༘&color=FFFADA)
 ##### <p align="center"><img src="https://img.sanishtech.com/u/43375aab05bf9b523e036a0974f51ae7.png" width="300" height="auto" align="center"></img></a> <br>
 
 <div align="center">
