@@ -4,6 +4,7 @@
   <table border="0">
       <td align="center" valign="middle" width="30%">
 
+![](https://komarev.com/ghpvc/?username=URAHARA-KI&label=wings+ִֶָ🪽་༘&color=FFFADA)
 $${\color{#FFFADA}𝓙ess}$$ $${\color{#D5D6AA}or}$$ $${\color{#FFFADA}𝓓awn}$$ ㅤ $${\color{#D5D6AA}.}$$ $${\color{#FFFADA}15}$$ </br>
 
 $${\color{#D5D6AA}ある}$$ $${\color{#FFFADA}美しい}$$ $${\color{#D5D6AA}夜}$$ ㅤ $${\color{#FFFADA}もっている}$$ $${\color{#D5D6AA}
@@ -22,7 +23,6 @@ prettiest gh
   </table>
 </div>
 
-![](https://komarev.com/ghpvc/?username=URAHARA-KI&label=wings+ִֶָ🪽་༘&color=FFFADA)
 ##### <p align="center"><img src="https://img.sanishtech.com/u/1a87315cedd3a8c1e488825d19d743ab.png" width="300" height="auto" align="center"></img></a> <br>
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/e1266a793daf5fc357dc6545c75f8cd7.png" width="200" height="auto" align="center"></img></a> <br>
