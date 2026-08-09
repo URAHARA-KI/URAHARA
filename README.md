@@ -1,4 +1,4 @@
-##### <p align="center"><img src="https://img.sanishtech.com/u/63e67dca6390f4d45c562a43c45b0e08.png" width="200" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/63e67dca6390f4d45c562a43c45b0e08.png" width="300" height="auto" align="center"></img></a> <br>
 
 <div align="center">
   <table border="0">
@@ -20,7 +20,7 @@ prettiest gh
   </table>
 </div>
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/8469c0b1fb2e8511a5bf4dcde87a3af0.png" width="300" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="<img src="https://img.sanishtech.com/u/ac7469109e6b85601c7f1956f09f5671.png" alt="1000386285" loading="lazy" style="max-width:100%;height:auto;">" width="300" height="auto" align="center"></img></a> <br>
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/b3a3c4bf36010696f44562eea58104f5.png" width="200" height="auto" align="center"></img></a> <br>
 
@@ -28,7 +28,7 @@ $${\color{#FFFADA}basic}$$ $${\color{#D5D6AA}dni}$$ $${\color{#FFFADA},}$$ ㅤ $
 
 $${\color{#D5D6AA}heavy}$$ $${\color{#FFFADA}c+h}$$ $${\color{#D5D6AA},}$$ ㅤ $${\color{#FFFADA}always}$$ $${\color{#D5D6AA}afk}$$ </br>
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/3537ba65a048ac3a1c7e1d525cd09aa4.png" width="300" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/3efc96142034a4fd6dc987dc8c975121.png" width="300" height="auto" align="center"></img></a> <br>
 
 </div>
 
