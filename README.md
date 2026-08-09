@@ -20,7 +20,7 @@ prettiest gh
   </table>
 </div>
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/b3a3c4bf36010696f44562eea58104f5.png" width="300" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/1a87315cedd3a8c1e488825d19d743ab.png" width="300" height="auto" align="center"></img></a> <br>
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/b3a3c4bf36010696f44562eea58104f5.png" width="200" height="auto" align="center"></img></a> <br>
 
