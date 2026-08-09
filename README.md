@@ -1,5 +1,6 @@
 ##### <p align="center"><img src="https://img.sanishtech.com/u/43375aab05bf9b523e036a0974f51ae7.png" width="300" height="auto" align="center"></img></a> <br>
 
+![](https://komarev.com/ghpvc/?username=URAHARA-KI&label=wings+ִֶָ🪽་༘&color=FFFADA)
 <div align="center">
   <table border="0">
       <td align="center" valign="middle" width="30%">
@@ -26,7 +27,6 @@ prettiest gh
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/e1266a793daf5fc357dc6545c75f8cd7.png" width="200" height="auto" align="center"></img></a> <br>
 
-![](https://komarev.com/ghpvc/?username=URAHARA-KI&label=wings+ִֶָ🪽་༘&color=FFFADA)
 $${\color{#FFFADA}basic}$$ $${\color{#D5D6AA}dni}$$ $${\color{#FFFADA},}$$ ㅤ $${\color{#D5D6AA}proshippers}$$ $${\color{#FFFADA}dni}$$ </br>
 
 $${\color{#D5D6AA}heavy}$$ $${\color{#FFFADA}c+h}$$ $${\color{#D5D6AA},}$$ ㅤ $${\color{#FFFADA}always}$$ $${\color{#D5D6AA}afk}$$ </br>
