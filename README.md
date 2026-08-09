@@ -4,7 +4,6 @@
   <table border="0">
       <td align="center" valign="middle" width="30%">
 
-![](https://komarev.com/ghpvc/?username=URAHARA-KI&label=wings+ִֶָ🪽་༘&color=FFFADA)
 $${\color{#FFFADA}𝓙ess}$$ $${\color{#D5D6AA}or}$$ $${\color{#FFFADA}𝓓awn}$$ ㅤ $${\color{#D5D6AA}.}$$ $${\color{#FFFADA}15}$$ </br>
 
 $${\color{#D5D6AA}ある}$$ $${\color{#FFFADA}美しい}$$ $${\color{#D5D6AA}夜}$$ ㅤ $${\color{#FFFADA}もっている}$$ $${\color{#D5D6AA}
@@ -27,6 +26,7 @@ prettiest gh
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/e1266a793daf5fc357dc6545c75f8cd7.png" width="200" height="auto" align="center"></img></a> <br>
 
+![](https://komarev.com/ghpvc/?username=URAHARA-KI&label=wings+ִֶָ🪽་༘&color=FFFADA)
 $${\color{#FFFADA}basic}$$ $${\color{#D5D6AA}dni}$$ $${\color{#FFFADA},}$$ ㅤ $${\color{#D5D6AA}proshippers}$$ $${\color{#FFFADA}dni}$$ </br>
 
 $${\color{#D5D6AA}heavy}$$ $${\color{#FFFADA}c+h}$$ $${\color{#D5D6AA},}$$ ㅤ $${\color{#FFFADA}always}$$ $${\color{#D5D6AA}afk}$$ </br>
