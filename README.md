@@ -37,7 +37,5 @@ $${\color{#D5D6AA}heavy}$$ $${\color{#FFFADA}c+h}$$ $${\color{#D5D6AA},}$$ ㅤ $
 
 </div>
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/be0d5c5164fe8e49aaa6d4f165a48622.png" width="200" height="auto" align="center"></img></a> <br>
-
-##### <p align="center"><img src="https://img.sanishtech.com/u/57c384ba95acdbb3a80b80cc7b115021.png" width="200" height="auto" align="center"></img></a> <br>
+ <a href="https://rentry.co/Dawn_Angel"><img src="https://img.sanishtech.com/u/57c384ba95acdbb3a80b80cc7b115021.png"/> </a>　　　<a href="https://httpsdawnangelstrawpage.straw.page"><img src="https://img.sanishtech.com/u/82d17c677b5f82a2df94ba15c26c7885.png"/> </a>
 
