@@ -37,5 +37,11 @@ $${\color{#D5D6AA}heavy}$$ $${\color{#FFFADA}c+h}$$ $${\color{#D5D6AA},}$$ ㅤ $
 
 </div>
 
- <a href="https://rentry.co/Dawn_Angel"><img src="https://img.sanishtech.com/u/57c384ba95acdbb3a80b80cc7b115021.png"/> </a> width="200" height="auto"　　<a href="https://httpsdawnangelstrawpage.straw.page"><img src="https://img.sanishtech.com/u/82d17c677b5f82a2df94ba15c26c7885.png"/> </a> width="200" height="auto"
+ <a href="https://rentry.co/Dawn_Angel"><img src="https://img.sanishtech.com/u/57c384ba95acdbb3a80b80cc7b115021.png"/> </a>　　<a href="https://httpsdawnangelstrawpage.straw.page"><img src="https://img.sanishtech.com/u/82d17c677b5f82a2df94ba15c26c7885.png"/> </a>
+
+$${\color{#D5D6AA}sign}$$ $${\color{#FFFADA}straw}$$ $${\color{#D5D6AA}and}$$ ㅤ $${\color{#FFFADA}read}$$ $${\color{#D5D6AA}rentry.}$$ </br>
+
+$${\color{#D5D6AA}please,}$$ $${\color{#FFFADA}don't}$$ $${\color{#D5D6AA}make a}$$ ㅤ $${\color{#FFFADA}sexual}$$ $${\color{#D5D6AA}jokes}$$ </br>
+
+
 
