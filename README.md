@@ -37,7 +37,7 @@ $${\color{#D5D6AA}heavy}$$ $${\color{#FFFADA}c+h}$$ $${\color{#D5D6AA},}$$ ㅤ $
 
 </div>
 
-[.@rentry](https://rentry.co/Dawn_Angel)[.@strawpage](https://httpsdawnangelstrawpage.straw.page)
+[.@rentry](https://rentry.co/Dawn_Angel) [▒]  [.@strawpage](https://httpsdawnangelstrawpage.straw.page)
 
 $${\color{#D5D6AA}sign}$$ $${\color{#FFFADA}straw}$$ $${\color{#D5D6AA}and}$$ ㅤ $${\color{#FFFADA}read}$$ $${\color{#D5D6AA}rentry.}$$ </br>
 
