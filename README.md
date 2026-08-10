@@ -5,7 +5,7 @@
 
 <div align="center">
   <table border="0">
-      <td align="center" valign="middle" width="30%">
+      <td align="center" valign="middle" width="50%">
 
 $${\color{#FFFADA}𝓙ess}$$ $${\color{#D5D6AA}or}$$ $${\color{#FFFADA}𝓓awn}$$ ㅤ $${\color{#D5D6AA}.}$$ $${\color{#FFFADA}15}$$ </br>
 
