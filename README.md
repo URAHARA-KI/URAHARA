@@ -41,7 +41,5 @@ $${\color{#D5D6AA}heavy}$$ $${\color{#FFFADA}c+h}$$ $${\color{#D5D6AA},}$$ ㅤ $
 
 $${\color{#D5D6AA}sign}$$ $${\color{#FFFADA}straw}$$ $${\color{#D5D6AA}and}$$ ㅤ $${\color{#FFFADA}read}$$ $${\color{#D5D6AA}rentry.}$$ </br>
 
-$${\color{#D5D6AA}please,}$$ $${\color{#FFFADA}don't}$$ $${\color{#D5D6AA}make a}$$ ㅤ $${\color{#FFFADA}sexual}$$ $${\color{#D5D6AA}jokes}$$ </br>
-
 
 
