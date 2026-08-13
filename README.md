@@ -1,5 +1,5 @@
-![](https://komarev.com/ghpvc/?username=CATAL0G&label=wings+ִֶָ🪽་༘&color=FFFADA)
-##### <p align="center"><img src="https://img.sanishtech.com/u/0b2d8b7e3de19dde4b8562fa34f59234.png" width="300" height="auto" align="center"></img></a> <br>
+![](https://komarev.com/ghpvc/?username=CATAL0G&label=+ִֶhijo+del+Corazon+🪽་༘&color=FFFADA)
+##### <p align="center"><img src="https://img.sanishtech.com/u/0b2d8b7e3de19dde4b8562fa34f59234.png" width="200" height="auto" align="center"></img></a> <br>
 
 $${\color{#D5D6AA}"i}$$ $${\color{#FFFADA}will}$$ $${\color{#D5D6AA}die}$$ ㅤ $${\color{#FFFADA}your}$$ $${\color{#D5D6AA}father."}$$ </br>
 
