@@ -8,8 +8,6 @@ $${\color{#A0297A}sign}$$ $${\color{#D5846E}straw}$$ $${\color{#A0297A}and}$$ ã…
 
 [.@rentry](https://rentry.co/Dawn_Angel) â™¡  [.@strawpage](https://httpsdawnangelstrawpage.straw.page)
 
--
-
 ##### <p align="center"> [pt-stars](https://github.com/pt-stars)
 
 pretty skins
