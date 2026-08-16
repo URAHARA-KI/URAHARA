@@ -22,7 +22,7 @@ pretty skins
 
 prettiest gh
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/67c6acf72cb74173e8f4c9baa6a01933.png" width="200" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/67c6acf72cb74173e8f4c9baa6a01933.png" width="300" height="auto" align="center"></img></a> <br>
 
 <p align="center">
 $${\color{#D5846E}"forever}$$ $${\color{#A0297A}in}$$ $${\color{#D5846E}death}$$ ㅤ $${\color{#A0297A}will be}$$ $${\color{#D5846E}in your hand"}$$ </br>
