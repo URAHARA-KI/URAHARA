@@ -22,10 +22,13 @@ pretty skins
 
 prettiest gh
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/4a8e697e0ecc3279cfb8b8eefe2391fe.png" width="200" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/67c6acf72cb74173e8f4c9baa6a01933.png" width="200" height="auto" align="center"></img></a> <br>
 
-$${\color{#D5846E}"you}$$ $${\color{#A0297A}are}$$ $${\color{#D5846E}my}$$ ㅤ $${\color{#A0297A}everything}$$ $${\color{#D5846E}."}$$ </br>
+<p align="center">
+$${\color{#D5846E}"forever}$$ $${\color{#A0297A}in}$$ $${\color{#D5846E}death}$$ ㅤ $${\color{#A0297A}will be}$$ $${\color{#D5846E}in your hand"}$$ </br>
+ </p>
 
-$${\color{#A0297A}"i}$$ $${\color{#D5846E}love}$$ $${\color{#A0297A}you}$$ ㅤ $${\color{#D5846E}♡}$$ $${\color{#A0297A}."}$$ </br>
-
+<p align="center">
+$${\color{#A0297A}"we}$$ $${\color{#D5846E}will}$$ $${\color{#A0297A}do}$$ ㅤ $${\color{#D5846E}our}$$ $${\color{#A0297A}destiny."}$$ </br>
+ </p>
 
