@@ -10,11 +10,13 @@ $${\color{#A0297A}sign}$$ $${\color{#D5846E}straw}$$ $${\color{#A0297A}and}$$ ã…
 [ @rentry ](https://rentry.co/Dawn_Angel) â™¡  [ @strawpage ](https://httpsdawnangelstrawpage.straw.page)
  </p>
 
-##### <p align="center"> [pt-stars](https://github.com/pt-stars)
+<p align="center"> [pt-stars](https://github.com/pt-stars)
+ </p>
 
 pretty skins
 
-##### <p align="center"> [pt-fashion](https://github.com/pt-fashion)
+<p align="center"> [pt-fashion](https://github.com/pt-fashion)
+ </p>
 
 prettiest gh
 
