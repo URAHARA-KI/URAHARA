@@ -7,9 +7,9 @@
 $${\color{#D5846E}"this}$$ $${\color{#A0297A}will}$$ $${\color{#D5846E}be}$$ ㅤ $${\color{#A0297A}our}$$ $${\color{#D5846E}destiny!"}$$ </br>
 
 <p align="center">
-$${\color{#A0297A}sign}$$ $${\color{#D5846E}straw}$$ $${\color{#A0297A}and}$$ ㅤ $${\color{#D5846E}read}$$ $${\color{#A0297A}rentry.}$$ </br>
+$${\color{#A0297A}sign}$$ $${\color{#D5846E}straw}$$ $${\color{#A0297A}and}$$ ㅤ $${\color{#D5846E}please}$$ $${\color{#A0297A}fndms dniud}$$ </br>
 
-[ @rentry ](https://rentry.co/Dawn_Angel) ♡  [ @strawpage ](https://httpsdawnangelstrawpage.straw.page)
+[ @strawpage ](https://httpsdawnangelstrawpage.straw.page)
  </p>
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/9cf1ee692116ab705e2b309f48204828.gif" width="200" height="auto" align="center"></img></a> <br>
