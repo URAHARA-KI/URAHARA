@@ -1,4 +1,4 @@
-<p align="center">
+
 ![](https://komarev.com/ghpvc/?username=CATAL0G&label=+ִֶ𝓒ross+𝓖uild+🍷་༘&color=6F1CA7)
  </p>
 
