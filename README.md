@@ -4,10 +4,9 @@
 
 $${\color{#D5846E}"this}$$ $${\color{#A0297A}will}$$ $${\color{#D5846E}be}$$ ㅤ $${\color{#A0297A}our}$$ $${\color{#D5846E}destiny!"}$$ </br>
 
-<align="center">
+<p align="center">
 $${\color{#A0297A}sign}$$ $${\color{#D5846E}straw}$$ $${\color{#A0297A}and}$$ ㅤ $${\color{#D5846E}read}$$ $${\color{#A0297A}rentry.}$$ </br>
 
-<p align="center">
 [ @rentry ](https://rentry.co/Dawn_Angel) ♡  [ @strawpage ](https://httpsdawnangelstrawpage.straw.page)
  </p>
 
