@@ -31,6 +31,6 @@ $${\color{#D5846E}"forever}$$ $${\color{#A0297A}in}$$ $${\color{#D5846E}death}$$
  </p>
 
 <p align="center">
-$${\color{#A0297A}"we}$$ $${\color{#D5846E}will}$$ $${\color{#A0297A}do}$$ ㅤ $${\color{#D5846E}our}$$ $${\color{#A0297A}destiny."}$$ </br>
+$${\color{#A0297A}"we}$$ $${\color{#D5846E}will}$$ $${\color{#A0297A}make}$$ ㅤ $${\color{#D5846E}everything}$$ $${\color{#A0297A}goes wrong."}$$ </br>
  </p>
 
