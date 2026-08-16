@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=CATAL0G&label=+ִֶhijo+del+Corazon+🪽་༘&color=D5846E)
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/0b2d8b7e3de19dde4b8562fa34f59234.png" width="200" height="auto" align="center"></img></a> <br>
+<img align="left" width="200" src="https://img.sanishtech.com/u/37cdcc811e5d8d1a3aa46aef1d80f8cd.png">
 
 $${\color{#D5846E}"i}$$ $${\color{#A0297A}will}$$ $${\color{#D5846E}die}$$ ㅤ $${\color{#A0297A}your}$$ $${\color{#D5846E}father."}$$ </br>
 
