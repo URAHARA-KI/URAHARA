@@ -34,3 +34,5 @@ $${\color{#D5846E}"forever}$$ $${\color{#A0297A}in}$$ $${\color{#D5846E}death}$$
 $${\color{#A0297A}"we}$$ $${\color{#D5846E}will}$$ $${\color{#A0297A}make}$$ ㅤ $${\color{#D5846E}everything}$$ $${\color{#A0297A}goes wrong."}$$ </br>
  </p>
 
+[alt 1](https://github.com/kuushanks) . [alt 2](https://github.com/crocsmoke)
+
