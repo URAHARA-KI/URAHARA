@@ -1,4 +1,6 @@
+<p align="center">
 ![](https://komarev.com/ghpvc/?username=CATAL0G&label=+ִֶ𝓒ross+𝓖uild+🍷་༘&color=6F1CA7)
+ </p>
 
 <img align="left" width="200" src="https://img.sanishtech.com/u/37cdcc811e5d8d1a3aa46aef1d80f8cd.png">
 
