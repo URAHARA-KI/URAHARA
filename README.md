@@ -40,7 +40,7 @@ pretty skins
 prettiest gh
  </p>
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/a6aebb9fa040ac7e4a96d8aac543b5ef.png" width="200" height="auto" align="center"></img></a> <br>
+<img align="left" width="300" src="https://img.sanishtech.com/u/bbee45206448da72ccace8f957e42f9b.png">
 
 <p align="center">
 $${\color{#FFE8BC}go}$$ $${\color{#D4A0FF}check}$$ $${\color{#FFE8BC}my}$$ ㅤ $${\color{#D4A0FF}other}$$ $${\color{#FFE8BC}alts!}$$ </br>
