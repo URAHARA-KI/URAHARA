@@ -2,9 +2,9 @@
 ![](https://komarev.com/ghpvc/?username=CATAL0G&label=+ִֶ𝓒ross+𝓖uild+🍷་༘&color=6F1CA7)
  </p>
 
-<img align="left" width="200" src="https://img.sanishtech.com/u/37cdcc811e5d8d1a3aa46aef1d80f8cd.png">
+##### <p align="center"><img src="https://img.sanishtech.com/u/88804ba69bf9626f80fa312fb2153d0e.png" width="300" height="auto" align="center"></img></a> <br>
 
-$${\color{#D5846E}"this}$$ $${\color{#A0297A}will}$$ $${\color{#D5846E}be}$$ ㅤ $${\color{#A0297A}our}$$ $${\color{#D5846E}destiny!"}$$ </br>
+$${\color{#D5846E}"what's}$$ $${\color{#A0297A}a}$$ $${\color{#D5846E}human}$$ ㅤ $${\color{#A0297A}being gonna}$$ $${\color{#D5846E}be like?"}$$ </br>
 
 <p align="center">
 $${\color{#A0297A}sign}$$ $${\color{#D5846E}straw}$$ $${\color{#A0297A}and}$$ ㅤ $${\color{#D5846E}please}$$ $${\color{#A0297A}fndms dniud}$$ </br>
@@ -12,7 +12,7 @@ $${\color{#A0297A}sign}$$ $${\color{#D5846E}straw}$$ $${\color{#A0297A}and}$$ �
 [ @strawpage ](https://httpsdawnangelstrawpage.straw.page)
  </p>
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/9cf1ee692116ab705e2b309f48204828.gif" width="200" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/85c8d0d223a1c2b8c4bcec8c959e411d.png" width="200" height="auto" align="center"></img></a> <br>
 
 ##### <p align="center"> [pt-stars](https://github.com/pt-stars)
  </p>
@@ -24,14 +24,10 @@ pretty skins
 
 prettiest gh
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/67c6acf72cb74173e8f4c9baa6a01933.png" width="300" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/a6aebb9fa040ac7e4a96d8aac543b5ef.png" width="300" height="auto" align="center"></img></a> <br>
 
 <p align="center">
-$${\color{#D5846E}"forever}$$ $${\color{#A0297A}in}$$ $${\color{#D5846E}death}$$ ㅤ $${\color{#A0297A}will be}$$ $${\color{#D5846E}in your hand"}$$ </br>
- </p>
-
-<p align="center">
-$${\color{#A0297A}"we}$$ $${\color{#D5846E}will}$$ $${\color{#A0297A}make}$$ ㅤ $${\color{#D5846E}everything}$$ $${\color{#A0297A}goes wrong."}$$ </br>
+$${\color{#D5846E}go}$$ $${\color{#A0297A}check}$$ $${\color{#D5846E}my}$$ ㅤ $${\color{#A0297A}other}$$ $${\color{#D5846E}alts!}$$ </br>
  </p>
 
 [alt 1](https://github.com/kuushanks) . [alt 2](https://github.com/crocsmoke)
