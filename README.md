@@ -4,7 +4,9 @@
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/88804ba69bf9626f80fa312fb2153d0e.png" width="300" height="auto" align="center"></img></a> <br>
 
+<p align="center">
 $${\color{#D5846E}"what's}$$ $${\color{#A0297A}a}$$ $${\color{#D5846E}human}$$ ㅤ $${\color{#A0297A}being gonna}$$ $${\color{#D5846E}be like?"}$$ </br>
+ </p>
 
 <p align="center">
 $${\color{#A0297A}sign}$$ $${\color{#D5846E}straw}$$ $${\color{#A0297A}and}$$ ㅤ $${\color{#D5846E}please}$$ $${\color{#A0297A}fndms dniud}$$ </br>
