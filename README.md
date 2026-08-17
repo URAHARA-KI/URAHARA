@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=CATAL0G&label=+ִֶ𝓢weet+𝓡eligion+🍷་༘&color=6F1CA7)
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/88804ba69bf9626f80fa312fb2153d0e.png" width="300" height="auto" align="center"></img></a> <br>
 
@@ -10,8 +11,6 @@ $${\color{#A0297A}sign}$$ $${\color{#D5846E}straw}$$ $${\color{#A0297A}and}$$ �
 
 [ @strawpage ](https://httpsdawnangelstrawpage.straw.page)
  </p>
-
-  ![](https://komarev.com/ghpvc/?username=CATAL0G&label=+ִֶ𝓢weet+𝓡eligion+🍷་༘&color=6F1CA7)
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/85c8d0d223a1c2b8c4bcec8c959e411d.png" width="100" height="auto" align="center"></img></a> <br>
 
