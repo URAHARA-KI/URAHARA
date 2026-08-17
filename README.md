@@ -60,4 +60,4 @@ $${\color{#FFE8BC}go}$$ $${\color{#D4A0FF}check}$$ $${\color{#FFE8BC}my}$$ ㅤ $
 $${\color{#D4A0FF}also}$$ $${\color{#FFE8BC}dni}$$ $${\color{#D4A0FF}if you}$$ ㅤ $${\color{#FFE8BC}support}$$ $${\color{#D4A0FF}proshippers & darkshippers!}$$ </br>
  </p>
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/64d2c6dea12b2dbc064fe68f496940d0.png" width="300" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/64d2c6dea12b2dbc064fe68f496940d0.png" width="350" height="100" align="center"></img></a> <br>
