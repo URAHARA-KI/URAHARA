@@ -24,7 +24,7 @@ pretty skins
 
 prettiest gh
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/a6aebb9fa040ac7e4a96d8aac543b5ef.png" width="300" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/a6aebb9fa040ac7e4a96d8aac543b5ef.png" width="200" height="auto" align="center"></img></a> <br>
 
 <p align="center">
 $${\color{#D5846E}go}$$ $${\color{#A0297A}check}$$ $${\color{#D5846E}my}$$ ㅤ $${\color{#A0297A}other}$$ $${\color{#D5846E}alts!}$$ </br>
