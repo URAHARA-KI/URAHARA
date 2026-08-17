@@ -35,13 +35,15 @@ prettiest gh
 $${\color{#D5846E}go}$$ $${\color{#A0297A}check}$$ $${\color{#D5846E}my}$$ ㅤ $${\color{#A0297A}other}$$ $${\color{#D5846E}alts!}$$ </br>
  </p>
 
-<p align="center">
+##### <p align="center">
 [alt 1](https://github.com/kuushanks)
  </p>
 
-<p align="center">
+##### <p align="center">
 [alt 2](https://github.com/crocsmoke)
  </p>
 
+<p align="center">
 $${\color{#B63E50}also}$$ $${\color{#4797B2}dni}$$ $${\color{#B63E50}if you}$$ ㅤ $${\color{#4797B2}support}$$ $${\color{#B63E50}proshippers & darkshippers!}$$ </br>
+ </p>
 
