@@ -47,6 +47,10 @@ $${\color{#FFE8BC}go}$$ $${\color{#D4A0FF}check}$$ $${\color{#FFE8BC}my}$$ ㅤ $
  </p>
 
 <p align="center">
+$${\color{#FFE8BC}c+h}$$ $${\color{#D4A0FF}is}$$ $${\color{#FFE8BC}okay}$$ ㅤ $${\color{#D4A0FF}iwec unless}$$ $${\color{#FFE8BC}party/oomfs}$$ </br>
+ </p>
+
+<p align="center">
 <a href="https://github.com/kuushanks"><img src="https://img.sanishtech.com/u/5647d034acf55d65d27f20b58093b06f.png"/> </a>　　
 
 <p align="center">
