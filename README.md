@@ -46,14 +46,8 @@ prettiest gh
 $${\color{#FFE8BC}go}$$ $${\color{#D4A0FF}check}$$ $${\color{#FFE8BC}my}$$ ㅤ $${\color{#D4A0FF}other}$$ $${\color{#FFE8BC}alts!}$$ </br>
  </p>
 
-##### <p align="center">
-[alt 1](https://github.com/kuushanks)
- </p>
-
-.
-
-##### <p align="center">
-[alt 2](https://github.com/crocsmoke)
+<p align="center">
+<a href="https://github.com/kuushanks"><img src="https://img.sanishtech.com/u/5647d034acf55d65d27f20b58093b06f.png"/> </a>　　　<a href="https://github.com/crocsmoke"><img src="https://img.sanishtech.com/u/409b4097731210b418a77389f2ccd7a8.png"/> </a>　　　
  </p>
 
 <p align="center">
