@@ -6,6 +6,10 @@
 $${\color{#FFE8BC}fame}$$ $${\color{#D4A0FF}is}$$ $${\color{#FFE8BC}a}$$ ㅤ $${\color{#D4A0FF}gun}$$ $${\color{#FFE8BC}♡}$$ </br>
  </p>
 
+<p align="center">
+$${\color{#D4A0FF}that}$$ $${\color{#FFE8BC}i}$$ $${\color{#D4A0FF}can't}$$ ㅤ $${\color{#FFE8BC}deny}$$ $${\color{#D4A0FF}.}$$ </br>
+ </p>
+
 ##### <p align="center"><img src="https://img.sanishtech.com/u/88804ba69bf9626f80fa312fb2153d0e.png" width="300" height="auto" align="center"></img></a> <br>
 
 <p align="center">
