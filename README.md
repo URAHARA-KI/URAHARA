@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=CATAL0G&label=+ִֶ𝓢weet+𝓡eligion+🍷་༘&color=D4A0FF)
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/09e2a4d2237583de1da0309c94786767.png" width="200" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/09e2a4d2237583de1da0309c94786767.png" width="300" height="auto" align="center"></img></a> <br>
 
 <p align="center">
 $${\color{#FFE8BC}fame}$$ $${\color{#D4A0FF}is}$$ $${\color{#FFE8BC}a}$$ ㅤ $${\color{#D4A0FF}gun}$$ $${\color{#FFE8BC}♡}$$ </br>
