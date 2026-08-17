@@ -19,12 +19,16 @@ $${\color{#A0297A}sign}$$ $${\color{#D5846E}straw}$$ $${\color{#A0297A}and}$$ ã…
 ##### <p align="center"> [pt-stars](https://github.com/pt-stars)
  </p>
 
+<p align="center">
 pretty skins
+ </p>
 
 ##### <p align="center"> [pt-fashion](https://github.com/pt-fashion)
  </p>
 
+<p align="center">
 prettiest gh
+ </p>
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/a6aebb9fa040ac7e4a96d8aac543b5ef.png" width="200" height="auto" align="center"></img></a> <br>
 
