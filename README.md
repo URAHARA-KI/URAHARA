@@ -1,4 +1,4 @@
-##### <p align="center"><img src="https://img.sanishtech.com/u/72393abdccf3a84a7b4b45c98f755763.png" width="300" height="100" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/72393abdccf3a84a7b4b45c98f755763.png" width="350" height="100" align="center"></img></a> <br>
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&label=+ִֶ𝓢weet+𝓡eligion+🍷་༘&color=D4A0FF)
 
