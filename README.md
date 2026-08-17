@@ -1,9 +1,9 @@
-![](https://komarev.com/ghpvc/?username=CATAL0G&label=+ִֶ𝓢weet+𝓡eligion+🍷་༘&color=6F1CA7)
+![](https://komarev.com/ghpvc/?username=CATAL0G&label=+ִֶ𝓢weet+𝓡eligion+🍷་༘&color=D4A0FF)
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/88804ba69bf9626f80fa312fb2153d0e.png" width="300" height="auto" align="center"></img></a> <br>
 
 <p align="center">
-$${\color{#D5846E}"what's}$$ $${\color{#A0297A}a}$$ $${\color{#D5846E}human}$$ ㅤ $${\color{#A0297A}being gonna}$$ $${\color{#D5846E}be like?"}$$ </br>
+$${\color{#D4A0FF}"what's}$$ $${\color{#FFE8BC}a}$$ $${\color{#D4A0FF}human}$$ ㅤ $${\color{#FFE8BC}being gonna}$$ $${\color{#D4A0FF}be like?"}$$ </br>
  </p>
 
 <p align="center">
@@ -31,7 +31,7 @@ prettiest gh
 ##### <p align="center"><img src="https://img.sanishtech.com/u/a6aebb9fa040ac7e4a96d8aac543b5ef.png" width="200" height="auto" align="center"></img></a> <br>
 
 <p align="center">
-$${\color{#D5846E}go}$$ $${\color{#A0297A}check}$$ $${\color{#D5846E}my}$$ ㅤ $${\color{#A0297A}other}$$ $${\color{#D5846E}alts!}$$ </br>
+$${\color{#FFE8BC}go}$$ $${\color{#D4A0FF}check}$$ $${\color{#FFE8BC}my}$$ ㅤ $${\color{#D4A0FF}other}$$ $${\color{#FFE8BC}alts!}$$ </br>
  </p>
 
 ##### <p align="center">
@@ -45,6 +45,6 @@ $${\color{#D5846E}go}$$ $${\color{#A0297A}check}$$ $${\color{#D5846E}my}$$ ㅤ $
  </p>
 
 <p align="center">
-$${\color{#B63E50}also}$$ $${\color{#4797B2}dni}$$ $${\color{#B63E50}if you}$$ ㅤ $${\color{#4797B2}support}$$ $${\color{#B63E50}proshippers & darkshippers!}$$ </br>
+$${\color{#D4A0FF}also}$$ $${\color{#FFE8BC}dni}$$ $${\color{#D4A0FF}if you}$$ ㅤ $${\color{#FFE8BC}support}$$ $${\color{#D4A0FF}proshippers & darkshippers!}$$ </br>
  </p>
 
