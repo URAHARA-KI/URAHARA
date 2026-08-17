@@ -1,9 +1,5 @@
 ##### <p align="center"><img src="https://img.sanishtech.com/u/a9d8edbb5e379f948a1cf11d5d9d8a4b.png" width="300" height="auto" align="center"></img></a> <br>
 
-##### <p align="center">
-![](https://komarev.com/ghpvc/?username=CATAL0G&label=+ִֶ𝓒ross+𝓖uild+🍷་༘&color=6F1CA7)
- </p>
-
 ##### <p align="center"><img src="https://img.sanishtech.com/u/88804ba69bf9626f80fa312fb2153d0e.png" width="300" height="auto" align="center"></img></a> <br>
 
 <p align="center">
