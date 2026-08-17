@@ -1,3 +1,5 @@
+##### <p align="center"><img src="https://img.sanishtech.com/u/72393abdccf3a84a7b4b45c98f755763.png" width="300" height="auto" align="center"></img></a> <br>
+
 ![](https://komarev.com/ghpvc/?username=CATAL0G&label=+ִֶ𝓢weet+𝓡eligion+🍷་༘&color=D4A0FF)
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/09e2a4d2237583de1da0309c94786767.png" width="300" height="auto" align="center"></img></a> <br>
@@ -58,3 +60,4 @@ $${\color{#FFE8BC}go}$$ $${\color{#D4A0FF}check}$$ $${\color{#FFE8BC}my}$$ ㅤ $
 $${\color{#D4A0FF}also}$$ $${\color{#FFE8BC}dni}$$ $${\color{#D4A0FF}if you}$$ ㅤ $${\color{#FFE8BC}support}$$ $${\color{#D4A0FF}proshippers & darkshippers!}$$ </br>
  </p>
 
+##### <p align="center"><img src="https://img.sanishtech.com/u/64d2c6dea12b2dbc064fe68f496940d0.png" width="300" height="auto" align="center"></img></a> <br>
