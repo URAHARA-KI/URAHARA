@@ -12,6 +12,8 @@ $${\color{#A0297A}sign}$$ $${\color{#D5846E}straw}$$ $${\color{#A0297A}and}$$ �
 [ @strawpage ](https://httpsdawnangelstrawpage.straw.page)
  </p>
 
+![](https://komarev.com/ghpvc/?username=CATAL0G&label=+ִֶ𝓒ross+𝓖uild+🍷་༘&color=6F1CA7)
+
 ##### <p align="center"><img src="https://img.sanishtech.com/u/85c8d0d223a1c2b8c4bcec8c959e411d.png" width="200" height="auto" align="center"></img></a> <br>
 
 ##### <p align="center"> [pt-stars](https://github.com/pt-stars)
