@@ -65,3 +65,10 @@ $${\color{#D4A0FF}also}$$ $${\color{#FFE8BC}dni}$$ $${\color{#D4A0FF}if you}$$ ã
  </p>
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/64d2c6dea12b2dbc064fe68f496940d0.png" width="350" height="100" align="center"></img></a> <br>
+
+##### <p align="center"><img src="https://img.sanishtech.com/u/7687350cd5ea3700d67e3a8e7ca13ebb.jpg" width="300" height="auto" align="center"></img></a> <br>
+
+
+##### <p align="center"><img src="https://img.sanishtech.com/u/a4b5040cc9154dfc1df9149ba1637f1b.jpg" width="300" height="auto" align="center"></img></a> <br>
+
+
