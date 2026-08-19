@@ -9,7 +9,7 @@ $${\color{434654}sign}$$ $${\color{#C18452}straw}$$ $${\color{#434654}and}$$ ㅤ
 [ @strawpage ](https://httpsdawnangelstrawpage.straw.page)
  </p>
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/e5e38d6fd8a47aed9788d610da9d3def.png" width="200" height="auto" align="center"></img></a> <br>
+<img align="right" width="200" src="https://img.sanishtech.com/u/ae5e4494ac7a2a87f0f33fe19258f44a.png">
 
 <p align="center">
 $${\color{434654}credits}$$ $${\color{#C18452}scythe}$$ $${\color{#434654}on}$$ ㅤ $${\color{#C18452}pinterest}$$ $${\color{#434654}.}$$ </br>
