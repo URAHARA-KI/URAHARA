@@ -58,4 +58,8 @@ $${\color{#C18452}also}$$ $${\color{#434654}dni}$$ $${\color{#C18452}if you}$$ �
 $${\color{434654}at }$$ $${\color{#C18452}docks }$$ $${\color{#434654}or}$$ ㅤ $${\color{#C18452}op}$$ $${\color{#434654}area}$$ </br>
  </p>
 
+##### <p align="center"><img src="https://img.sanishtech.com/u/ea018d79a8d35c657926193de18f763f.jpg" width="200" height="auto" align="center"></img></a> <br>
+
+<p align="center">
+$${\color{434654}me}$$ $${\color{#C18452}when i}$$ $${\color{#434654}keep}$$ ㅤ $${\color{#C18452}changing}$$ $${\color{#434654}my gh/readme}$$ </br>
 
