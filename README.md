@@ -1,7 +1,7 @@
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&label=+ִֶ𝓢weet+𝓡eligion+🍷་༘&color=D4A0FF)
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/031c9267575d8d90d84ee303a8e91232.png" width="300" height="auto" align="center"></img></a> <br>
+<img align="left" width="200" src="https://img.sanishtech.com/u/031c9267575d8d90d84ee303a8e91232.png">
 
 <p align="center">
 $${\color{#A0297A}sign}$$ $${\color{#D5846E}straw}$$ $${\color{#A0297A}and}$$ ㅤ $${\color{#D5846E}please}$$ $${\color{#A0297A}fndms dniud}$$ </br>
