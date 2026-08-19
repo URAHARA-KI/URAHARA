@@ -11,6 +11,10 @@ $${\color{434654}sign}$$ $${\color{#C18452}straw}$$ $${\color{#434654}and}$$ ㅤ
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/e5e38d6fd8a47aed9788d610da9d3def.png" width="200" height="auto" align="center"></img></a> <br>
 
+<p align="center">
+$${\color{434654}credits}$$ $${\color{#C18452}scythe}$$ $${\color{#434654}on}$$ ㅤ $${\color{#C18452}pinterest}$$ $${\color{#434654}.}$$ </br>
+ </p>
+
 ##### <p align="center"> [pt-stars](https://github.com/pt-stars)
  </p>
 
