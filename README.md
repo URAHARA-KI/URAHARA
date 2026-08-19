@@ -1,22 +1,7 @@
-##### <p align="center"><img src="https://img.sanishtech.com/u/72393abdccf3a84a7b4b45c98f755763.png" width="350" height="100" align="center"></img></a> <br>
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&label=+ִֶ𝓢weet+𝓡eligion+🍷་༘&color=D4A0FF)
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/09e2a4d2237583de1da0309c94786767.png" width="300" height="auto" align="center"></img></a> <br>
-
-<p align="center">
-$${\color{#FFE8BC}fame}$$ $${\color{#D4A0FF}is}$$ $${\color{#FFE8BC}a}$$ ㅤ $${\color{#D4A0FF}gun}$$ $${\color{#FFE8BC}♡}$$ </br>
- </p>
-
-<p align="center">
-$${\color{#D4A0FF}that}$$ $${\color{#FFE8BC}i}$$ $${\color{#D4A0FF}can't}$$ ㅤ $${\color{#FFE8BC}deny}$$ $${\color{#D4A0FF}.}$$ </br>
- </p>
-
-##### <p align="center"><img src="https://img.sanishtech.com/u/88804ba69bf9626f80fa312fb2153d0e.png" width="300" height="auto" align="center"></img></a> <br>
-
-<p align="center">
-$${\color{#D4A0FF}"what's}$$ $${\color{#FFE8BC}a}$$ $${\color{#D4A0FF}human}$$ ㅤ $${\color{#FFE8BC}being gonna}$$ $${\color{#D4A0FF}be like?"}$$ </br>
- </p>
+##### <p align="center"><img src="https://img.sanishtech.com/u/031c9267575d8d90d84ee303a8e91232.png" width="300" height="auto" align="center"></img></a> <br>
 
 <p align="center">
 $${\color{#A0297A}sign}$$ $${\color{#D5846E}straw}$$ $${\color{#A0297A}and}$$ ㅤ $${\color{#D5846E}please}$$ $${\color{#A0297A}fndms dniud}$$ </br>
@@ -24,7 +9,7 @@ $${\color{#A0297A}sign}$$ $${\color{#D5846E}straw}$$ $${\color{#A0297A}and}$$ �
 [ @strawpage ](https://httpsdawnangelstrawpage.straw.page)
  </p>
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/85c8d0d223a1c2b8c4bcec8c959e411d.png" width="200" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/e5e38d6fd8a47aed9788d610da9d3def.png" width="200" height="auto" align="center"></img></a> <br>
 
 ##### <p align="center"> [pt-stars](https://github.com/pt-stars)
  </p>
@@ -40,7 +25,7 @@ pretty skins
 prettiest gh
  </p>
 
-<img align="left" width="200" src="https://img.sanishtech.com/u/bbee45206448da72ccace8f957e42f9b.png">
+<img align="left" width="200" src="https://img.sanishtech.com/u/9055bdfb66a0ae3a870e0d750647aa7e.png">
 
 <p align="center">
 $${\color{#FFE8BC}go}$$ $${\color{#D4A0FF}check}$$ $${\color{#FFE8BC}my}$$ ㅤ $${\color{#D4A0FF}other}$$ $${\color{#FFE8BC}alts!}$$ </br>
@@ -62,13 +47,6 @@ $${\color{#FFE8BC}c+h}$$ $${\color{#D4A0FF}is}$$ $${\color{#FFE8BC}okay}$$ ㅤ $
 
 <p align="center">
 $${\color{#D4A0FF}also}$$ $${\color{#FFE8BC}dni}$$ $${\color{#D4A0FF}if you}$$ ㅤ $${\color{#FFE8BC}support}$$ $${\color{#D4A0FF}proshippers & darkshippers!}$$ </br>
- </p>
-
-##### <p align="center"><img src="https://img.sanishtech.com/u/64d2c6dea12b2dbc064fe68f496940d0.png" width="350" height="100" align="center"></img></a> <br>
-
-##### <p align="center"><img src="https://img.sanishtech.com/u/7687350cd5ea3700d67e3a8e7ca13ebb.jpg" width="300" height="auto" align="center"></img></a> <br>
-
-
-##### <p align="center"><img src="https://img.sanishtech.com/u/a4b5040cc9154dfc1df9149ba1637f1b.jpg" width="300" height="auto" align="center"></img></a> <br>
+ </p
 
 
