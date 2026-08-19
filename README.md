@@ -4,7 +4,7 @@
 <img align="left" width="200" src="https://img.sanishtech.com/u/031c9267575d8d90d84ee303a8e91232.png">
 
 <p align="center">
-$${\color{#A0297A}sign}$$ $${\color{#D5846E}straw}$$ $${\color{#A0297A}and}$$ ㅤ $${\color{#D5846E}please}$$ $${\color{#A0297A}fndms dniud}$$ </br>
+$${\color{434654}sign}$$ $${\color{#C18452}straw}$$ $${\color{#434654}and}$$ ㅤ $${\color{#C18452}please}$$ $${\color{#434654}fndms dniud}$$ </br>
 
 [ @strawpage ](https://httpsdawnangelstrawpage.straw.page)
  </p>
@@ -28,11 +28,11 @@ prettiest gh
 <img align="left" width="200" src="https://img.sanishtech.com/u/9055bdfb66a0ae3a870e0d750647aa7e.png">
 
 <p align="center">
-$${\color{#FFE8BC}go}$$ $${\color{#D4A0FF}check}$$ $${\color{#FFE8BC}my}$$ ㅤ $${\color{#D4A0FF}other}$$ $${\color{#FFE8BC}alts!}$$ </br>
+$${\color{#C18452}go}$$ $${\color{#434654}check}$$ $${\color{#C18452}my}$$ ㅤ $${\color{#434654}other}$$ $${\color{#C18452}alts!}$$ </br>
  </p>
 
 <p align="center">
-$${\color{#FFE8BC}c+h}$$ $${\color{#D4A0FF}is}$$ $${\color{#FFE8BC}okay}$$ ㅤ $${\color{#D4A0FF}iwec unless}$$ $${\color{#FFE8BC}party/oomfs}$$ </br>
+$${\color{#434654}c+h}$$ $${\color{#C18452}is}$$ $${\color{#434654}okay}$$ ㅤ $${\color{#C18452}iwec unless}$$ $${\color{#434654}party/oomfs}$$ </br>
  </p>
 
 [01](https://github.com/kuushanks)
@@ -47,7 +47,7 @@ $${\color{#FFE8BC}c+h}$$ $${\color{#D4A0FF}is}$$ $${\color{#FFE8BC}okay}$$ ㅤ $
  </p>
 
 <p align="center">
-$${\color{#D4A0FF}also}$$ $${\color{#FFE8BC}dni}$$ $${\color{#D4A0FF}if you}$$ ㅤ $${\color{#FFE8BC}support}$$ $${\color{#D4A0FF}proshippers & darkshippers!}$$ </br>
- </p
+$${\color{#C18452}also}$$ $${\color{#434654}dni}$$ $${\color{#C18452}if you}$$ ㅤ $${\color{#434654}support}$$ $${\color{#C18452}proshippers & darkshippers!}$$ </br>
+ </p>
 
 
