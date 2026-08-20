@@ -70,3 +70,7 @@ $${\color{#A3BB73}ints}$$ $${\color{#5696AF}if your}$$ $${\color{#A3BB73}a fan}$
 
 <p align="center">
 $${\color{#5696AF}and}$$ $${\color{#A3BB73}please}$$ $${\color{#5696AF}follow}$$ ㅤ $${\color{#A3BB73}my precious}$$ $${\color{#5696AF}oomfs! ૮₍ ˃ ᵕ ˂ ₎ა}$$ </br>
+
+<p align="center">
+art creds : @__c_a_k_e__ on twitter
+</p>
