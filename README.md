@@ -1,5 +1,5 @@
 
-![](https://komarev.com/ghpvc/?username=CATAL0G&label=+ִֶ𝓕lame+𝓔mperor+🔥་༘&color=C18452)
+![](https://komarev.com/ghpvc/?username=CATAL0G&label=+ִֶ𝓕lame+𝓔mperor+🔥་༘&color=5696AF)
 
 <img align="left" width="300" src="https://img.sanishtech.com/u/cd5e9f15703cbcc8604d71319f4fd265.png">
 
