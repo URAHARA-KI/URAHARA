@@ -57,6 +57,8 @@ $${\color{434654}asian -}$$ $${\color{#C18452}half pale}$$ $${\color{#434654} ,}
 [02](https://github.com/crocsmoke)
  </p>
 
+<img align="left" width="200" src="https://img.sanishtech.com/u/a80d0ba5578cb3428b0bda5ee80f427c.png">
+
 <p align="center">
 $${\color{434654}w2i,}$$ $${\color{#C18452}because}$$ $${\color{#434654}i always}$$ ㅤ $${\color{#C18452}afk and}$$ $${\color{#434654}slow respons!}$$ </br>
 
