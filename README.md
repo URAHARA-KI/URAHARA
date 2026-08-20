@@ -13,7 +13,7 @@ $${\color{434654}jess}$$ $${\color{#C18452}or}$$ $${\color{#434654}dawn}$$ ㅤ $
 <p align="center">
 $${\color{434654}heavy}$$ $${\color{#C18452}dnis}$$ $${\color{#434654}and}$$ ㅤ $${\color{#C18452}please}$$ $${\color{#434654}fndms dniud}$$ </br>
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/f2f636f3fd1ee5d8cc94357199e81d4c.png" width="200" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/f2f636f3fd1ee5d8cc94357199e81d4c.png" width="300" height="auto" align="center"></img></a> <br>
 
 <p align="center">
 $${\color{434654}sign}$$ $${\color{#C18452}straw}$$ $${\color{#434654}and}$$ ㅤ $${\color{#C18452}c+h}$$ $${\color{#434654}freely}$$ </br>
