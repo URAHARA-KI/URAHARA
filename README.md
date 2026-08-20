@@ -18,6 +18,9 @@ $${\color{434654}heavy}$$ $${\color{#C18452}dnis}$$ $${\color{#434654}and}$$ ㅤ
 <p align="center">
 $${\color{434654}sign}$$ $${\color{#C18452}straw}$$ $${\color{#434654}and}$$ ㅤ $${\color{#C18452}c+h}$$ $${\color{#434654}freely}$$ </br>
 
+<p align="center">
+$${\color{434654}also}$$ $${\color{#C18452}do not}$$ $${\color{#434654}copy}$$ ㅤ $${\color{#C18452}my skins}$$ $${\color{#434654}please!}$$ </br>
+
 [ @strawpage ](https://httpsdawnangelstrawpage.straw.page)
  </p>
 
@@ -56,3 +59,6 @@ $${\color{434654}asian -}$$ $${\color{#C18452}half pale}$$ $${\color{#434654} ,}
 
 <p align="center">
 $${\color{434654}w2i,}$$ $${\color{#C18452}because}$$ $${\color{#434654}i always}$$ ㅤ $${\color{#C18452}afk and}$$ $${\color{#434654}slow respons!}$$ </br>
+
+<p align="center">
+$${\color{434654}ints}$$ $${\color{#C18452}if your}$$ $${\color{#434654}a fan}$$ ㅤ $${\color{#C18452}of op}$$ $${\color{#434654}and hell's paradise!}$$ </br>
