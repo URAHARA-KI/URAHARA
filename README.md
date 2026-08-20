@@ -4,31 +4,31 @@
 <img align="left" width="300" src="https://img.sanishtech.com/u/cd5e9f15703cbcc8604d71319f4fd265.png">
 
 <p align="center">
-$${\color{434654}glory}$$ $${\color{#C18452}to}$$ $${\color{#434654}the}$$ ㅤ $${\color{#C18452}flame}$$ $${\color{#434654}emperor}$$ </br>
+$${\color{5696AF}glory}$$ $${\color{#A3BB73}to}$$ $${\color{#5696AF}the}$$ ㅤ $${\color{#A3BB73}flame}$$ $${\color{#5696AF}emperor}$$ </br>
 </p>
 
 <p align="center">
-$${\color{434654}jess}$$ $${\color{#C18452}or}$$ $${\color{#434654}dawn}$$ ㅤ $${\color{#C18452}w2i ,}$$ $${\color{#434654}fndms dniud}$$ </br>
+$${\color{A3BB73}jess}$$ $${\color{#5696AF}or}$$ $${\color{#A3BB73}dawn}$$ ㅤ $${\color{#5696AF}w2i ,}$$ $${\color{#A3BB73}fndms dniud}$$ </br>
 
 <p align="center">
-$${\color{434654}heavy}$$ $${\color{#C18452}dnis}$$ $${\color{#434654}and}$$ ㅤ $${\color{#C18452}please}$$ $${\color{#434654}fndms dniud}$$ </br>
+$${\color{5696AF}heavy}$$ $${\color{#A3BB73}dnis}$$ $${\color{#5696AF}and}$$ ㅤ $${\color{#A3BB73}please}$$ $${\color{#5696AF}fndms dniud}$$ </br>
 
 <p align="center">
-$${\color{434654}indonesia}$$ $${\color{#C18452},half}$$ $${\color{#434654}british}$$ ㅤ $${\color{#C18452}.}$$ $${\color{#434654}૮₍ ˃ ᵕ ˂ ₎ა}$$ </br>
+$${\color{A3BB73}indonesia}$$ $${\color{#5696AF},half}$$ $${\color{#A3BB73}british}$$ ㅤ $${\color{#5696AF}.}$$ $${\color{#A3BB73}૮₍ ˃ ᵕ ˂ ₎ა}$$ </br>
 
 ##### <p align="center"><img src="https://img.sanishtech.com/u/f2f636f3fd1ee5d8cc94357199e81d4c.png" width="200" height="auto" align="center"></img></a> <br>
 
 <p align="center">
-$${\color{434654}sign}$$ $${\color{#C18452}straw}$$ $${\color{#434654}and}$$ ㅤ $${\color{#C18452}c+h}$$ $${\color{#434654}freely}$$ </br>
+$${\color{5696AF}sign}$$ $${\color{#A3BB73}straw}$$ $${\color{#5696AF}and}$$ ㅤ $${\color{#A3BB73}c+h}$$ $${\color{#5696AF}freely}$$ </br>
 
 <p align="center">
-$${\color{434654}also}$$ $${\color{#C18452}do not}$$ $${\color{#434654}copy}$$ ㅤ $${\color{#C18452}my skins}$$ $${\color{#434654}please!}$$ </br>
+$${\color{#A3BB73}also}$$ $${\color{#5696AF}do not}$$ $${\color{#A3BB73}copy}$$ ㅤ $${\color{#5696AF}my skins}$$ $${\color{#A3BB73}please!}$$ </br>
 
 [ @strawpage ](https://httpsdawnangelstrawpage.straw.page)
  </p>
 
 <p align="center">
-$${\color{434654}also}$$ $${\color{#C18452}racism}$$ $${\color{#434654}and}$$ ㅤ $${\color{#C18452}transphobic}$$ $${\color{#434654}dni😭✌}$$ </br>
+$${\color{#5696AF}also}$$ $${\color{#A3BB73}racism}$$ $${\color{#5696AF}and}$$ ㅤ $${\color{#A3BB73}transphobic}$$ $${\color{#5696AF}dni😭✌}$$ </br>
 
 ##### <p align="center"> [pt-stars](https://github.com/pt-stars)
  </p>
@@ -47,7 +47,7 @@ prettiest gh
 <img align="right" width="200" src="https://img.sanishtech.com/u/90d4f2d6edc1f00b1652a34dd94c67ce.png">
 
 <p align="center">
-$${\color{434654}asian -}$$ $${\color{#C18452}half pale}$$ $${\color{#434654} ,}$$ ㅤ $${\color{#C18452}FTM}$$ $${\color{#434654}asexual}$$ </br>
+$${\color{A3BB73}asian -}$$ $${\color{#5696AF}half pale}$$ $${\color{#A3BB73} ,}$$ ㅤ $${\color{#5696AF}FTM}$$ $${\color{#A3BB73}asexual}$$ </br>
 
 [01](https://github.com/kuushanks)
  </p>
@@ -63,10 +63,10 @@ $${\color{434654}asian -}$$ $${\color{#C18452}half pale}$$ $${\color{#434654} ,}
 <img align="left" width="200" src="https://img.sanishtech.com/u/a80d0ba5578cb3428b0bda5ee80f427c.png">
 
 <p align="center">
-$${\color{434654}w2i,}$$ $${\color{#C18452}because}$$ $${\color{#434654}i always}$$ ㅤ $${\color{#C18452}afk and}$$ $${\color{#434654}slow respons!}$$ </br>
+$${\color{#5696AF}w2i,}$$ $${\color{#A3BB73}because}$$ $${\color{#5696AF}i always}$$ ㅤ $${\color{#A3BB73}afk and}$$ $${\color{#5696AF}slow respons!}$$ </br>
 
 <p align="center">
-$${\color{434654}ints}$$ $${\color{#C18452}if your}$$ $${\color{#434654}a fan}$$ ㅤ $${\color{#C18452}of op}$$ $${\color{#434654}and hell's paradise!}$$ </br>
+$${\color{#A3BB73}ints}$$ $${\color{#5696AF}if your}$$ $${\color{#A3BB73}a fan}$$ ㅤ $${\color{#5696AF}of op}$$ $${\color{#A3BB73}and hell's paradise!}$$ </br>
 
 <p align="center">
-$${\color{434654}and}$$ $${\color{#C18452}please}$$ $${\color{#434654}follow}$$ ㅤ $${\color{#C18452}my precious}$$ $${\color{#434654}oomfs! ૮₍ ˃ ᵕ ˂ ₎ა}$$ </br>
+$${\color{#5696AF}and}$$ $${\color{#A3BB73}please}$$ $${\color{#5696AF}follow}$$ ㅤ $${\color{#A3BB73}my precious}$$ $${\color{#5696AF}oomfs! ૮₍ ˃ ᵕ ˂ ₎ა}$$ </br>
