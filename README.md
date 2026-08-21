@@ -9,9 +9,13 @@ $${\color{5696AF}glory}$$ $${\color{#A3BB73}to}$$ $${\color{#5696AF}the}$$ ㅤ $
 
 <p align="center">
 𝓙ess - 𝓓awn  , 
+</p>
 
+<p align="center">
  caring beta -
+</p>
 
+<p align="center">
 🍾 iwec , w2i always
 </p>
 
