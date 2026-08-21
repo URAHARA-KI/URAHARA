@@ -8,7 +8,7 @@ $${\color{5696AF}glory}$$ $${\color{#A3BB73}to}$$ $${\color{#5696AF}the}$$ ㅤ $
 </p>
 
 <p align="center">
-$${\color{A3BB73}jess}$$ $${\color{#5696AF}or}$$ $${\color{#A3BB73}dawn}$$ ㅤ $${\color{#5696AF}w2i ,}$$ $${\color{#A3BB73}fndms dniud}$$ </br>
+$${\color{A3BB73}jess}$$ $${\color{#5696AF}or}$$ $${\color{#A3BB73}dawn}$$ ㅤ $${\color{#5696AF}w2i ,}$$ $${\color{#A3BB73}afk always}$$ </br>
 
 <p align="center">
 $${\color{5696AF}heavy}$$ $${\color{#A3BB73}dnis}$$ $${\color{#5696AF}and}$$ ㅤ $${\color{#A3BB73}please}$$ $${\color{#5696AF}fndms dniud}$$ </br>
