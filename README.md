@@ -16,7 +16,7 @@ $${\color{5696AF}heavy}$$ $${\color{#A3BB73}dnis}$$ $${\color{#5696AF}and}$$ ㅤ
 <p align="center">
 $${\color{A3BB73}indonesia}$$ $${\color{#5696AF},half}$$ $${\color{#A3BB73}british}$$ ㅤ $${\color{#5696AF}.}$$ $${\color{#A3BB73}૮₍ ˃ ᵕ ˂ ₎ა}$$ </br>
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/f2f636f3fd1ee5d8cc94357199e81d4c.png" width="200" height="auto" align="center"></img></a> <br>
+##### <p align="right"><img src="https://img.sanishtech.com/u/f2f636f3fd1ee5d8cc94357199e81d4c.png" width="200" height="auto" align="center"></img></a> <br>
 
 <p align="center">
 $${\color{5696AF}sign}$$ $${\color{#A3BB73}straw}$$ $${\color{#5696AF}and}$$ ㅤ $${\color{#A3BB73}c+h}$$ $${\color{#5696AF}freely}$$ </br>
