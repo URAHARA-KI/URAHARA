@@ -57,6 +57,14 @@ pretty skins
 prettiest gh
  </p>
 
+<p align="center">
+[pt-friendships](https://github.com/pt-friendships)
+</p>
+
+<p align="center">
+found family ૮₍ ˃ ᵕ ˂ ₎ა
+</p>
+
 <img align="right" width="200" src="https://img.sanishtech.com/u/90d4f2d6edc1f00b1652a34dd94c67ce.png">
 
 <p align="center">
