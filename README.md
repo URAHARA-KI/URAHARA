@@ -47,7 +47,7 @@ prettiest gh
 <img align="right" width="200" src="https://img.sanishtech.com/u/90d4f2d6edc1f00b1652a34dd94c67ce.png">
 
 <p align="center">
-$${\color{A3BB73}asian -}$$ $${\color{#5696AF}half pale}$$ $${\color{#A3BB73} ,}$$ ㅤ $${\color{#5696AF}FTM}$$ $${\color{#A3BB73}asexual}$$ </br>
+$${\color{A3BB73}asian -}$$ $${\color{#5696AF}half pale}$$ $${\color{#A3BB73} ,}$$ ㅤ $${\color{#5696AF}trans - FTM}$$ $${\color{#A3BB73}asexual}$$ </br>
 
 [01](https://github.com/kuushanks)
  </p>
