@@ -66,7 +66,7 @@ $${\color{A3BB73}asian -}$$ $${\color{#5696AF}half pale}$$ $${\color{#A3BB73} ,}
  </p>
 
 <p align="center">
-.
+$${\color{#A3BB73}check}$$ $${\color{#5696AF}out my}$$ $${\color{#A3BB73}others}$$ ㅤ $${\color{#5696AF}user alts}$$ $${\color{#A3BB73}૮₍ ˃ ᵕ ˂ ₎ა}$$ </br>
  </p>
 
 　
