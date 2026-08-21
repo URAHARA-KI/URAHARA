@@ -24,6 +24,10 @@ $${\color{5696AF}sign}$$ $${\color{#A3BB73}straw}$$ $${\color{#5696AF}and}$$ ㅤ
 <p align="center">
 $${\color{#A3BB73}also}$$ $${\color{#5696AF}do not}$$ $${\color{#A3BB73}copy}$$ ㅤ $${\color{#5696AF}my skins}$$ $${\color{#A3BB73}please!}$$ </br>
 
+<p align="center">
+$${\color{#A3BB73}do not}$$ $${\color{#5696AF}interact}$$ $${\color{#A3BB73}if your a}$$ ㅤ $${\color{#5696AF}proshippers &}$$ $${\color{#A3BB73}darkshippers}$$ </br>
+
+
 [ @strawpage ](https://httpsdawnangelstrawpage.straw.page)
  </p>
 
