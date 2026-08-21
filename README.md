@@ -57,7 +57,7 @@ pretty skins
 prettiest gh
  </p>
 
-<p align="center">
+##### <p align="center">
 [pt-friendships](https://github.com/pt-friendships)
 </p>
 
