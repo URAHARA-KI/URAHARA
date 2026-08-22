@@ -20,6 +20,7 @@ ${\text{\color{#A3BB73} 𝓖o ㅤ\color{#5696AF} 𝓕ollow myㅤ\color{#A3BB73} 
 </p>
 
 <p align="center">
+<details> <summary> <sub><a </sub
 >${\text{\color{#5696AF} ' 𝓖oㅤ\color{#A3BB73} 𝓒heckㅤ\color{#5696AF} 𝓞utㅤ\color{#5696AF} 𝓣he othersㅤ\color{#A3BB73} 𝓤sersㅤ,}}$ <br>
 
 <sub><a </sub>$
@@ -40,5 +41,11 @@ ${\text{\color{#A3BB73} 𝓣heㅤ\color{#5696AF} 𝓟𝓽 .ㅤ\color{#A3BB73} �
 <p align="center">
 ${\text{\color{#5696AF} ' 𝓜yㅤ\color{#A3BB73} 𝓞thersㅤ\color{#5696AF} 𝓐ltㅤ\color{#A3BB73} 𝓤sersㅤ\color{#5696AF} 𝓖hㅤ,}}$ <br>
 </p>
+
+<br>
+[01](https://github.com/kuushanks)
+
+<br>
+[02](https://github.com/crocsmoke)
 
 </details>
