@@ -60,5 +60,10 @@ ${\text{\color{#421e20} ' 𝓐ppreciatedㅤ\color{#512830} 𝓣hankㅤ\color{#65
 <th>
 
 ##### <p align="center"> [01](https://github.com/kuushanks)ㅤ[02](https://github.com/crocsmoke)ㅤ
+</th>
+  </tr>
+  </table>
+</details>
+</div>
 
 
