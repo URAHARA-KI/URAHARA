@@ -1,4 +1,4 @@
-
+https://img.sanishtech.com/u/90d4f2d6edc1f00b1652a34dd94c67ce.png
 ![](https://komarev.com/ghpvc/?username=CATAL0G&label=+ִֶ𝓕lame+𝓔mperor+🔥་༘&color=5696AF)
 
 <img align="left" width="300" src="https://img.sanishtech.com/u/bf33b8a21190118202fb413568fdbf8b.png">
@@ -32,7 +32,7 @@ ${\text{\color{#5696AF} ' 𝓖oㅤ\color{#A3BB73} 𝓒heckㅤ\color{#5696AF} �
   </table>
   </tr>
 <th>
-${\text{\color{#421e20} ' 𝓐ppreciatedㅤ\color{#512830} 𝓣hankㅤ\color{#653644} 𝓨ouㅤ\color{#5e454a} 𝓟tㅤ\color{#565450} 𝓐ward𝘀ㅤ,}}$ <br>
+${\text{\color{#A3BB73} ' 𝓐ppreciatedㅤ\color{#5696AF} 𝓣hankㅤ\color{#A3BB73} 𝓨ouㅤ\color{#5696AF} 𝓟tㅤ\color{#A3BB73} 𝓐ward𝘀ㅤ,}}$ <br>
 
 ##### <p align="center"> [pt-stars](https://github.com/pt-stars)ㅤ[pt-fashion](https://github.com/pt-fashion)ㅤ[pt-friendships](https://github.com/pt-friendships)</p>
 
@@ -68,5 +68,8 @@ ${\text{\color{#421e20} ' 𝓐ppreciatedㅤ\color{#512830} 𝓣hankㅤ\color{#65
 
 
 <img align="right" width="300" src="https://img.sanishtech.com/u/e9b16ea44219ba153c5e916807c5cfd7.png">
+
+half way wip
+
 
 
