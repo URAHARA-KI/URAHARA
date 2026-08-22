@@ -7,4 +7,4 @@
 ${\text{\color{#5696AF} ' 𝒊'mㅤ\color{#A3BB73} 𝓛ostㅤ\color{#5696AF} inㅤ\color{#A3BB73} 𝓎ourㅤ\color{#5696AF} irisㅤ,}}$ <br>
 </p>
 
-${\text{\color{#421e20} ' 𝓒all me 𝓙ess / 𝓓awn .ㅤ\color{#512830} 𝓘ndo - 𝓗alf britishㅤ\color{#653644} 𝓣rans (FTM)ㅤ\color{#5e454a} 𝓐sexualㅤ\color{#565450} 𝓜ental issuesㅤ,}}$ <br>
+${\text{\color{#A3BB73} ' 𝓒all me 𝓙ess / 𝓓awn .ㅤ\color{#5696AF} 𝓘ndo - 𝓗alf britishㅤ\color{#A3BB73} 𝓣rans (FTM)ㅤ\color{#5696AF} 𝓐sexualㅤ\color{#A3BB73} 𝓜ental issuesㅤ,}}$ <br>
