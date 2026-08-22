@@ -92,7 +92,7 @@ $${\color{#A3BB73}ints}$$ $${\color{#5696AF}if your}$$ $${\color{#A3BB73}a fan}$
 <p align="center">
 $${\color{#5696AF}and}$$ $${\color{#A3BB73}please}$$ $${\color{#5696AF}follow}$$ ㅤ $${\color{#A3BB73}my precious}$$ $${\color{#5696AF}oomfs! ૮₍ ˃ ᵕ ˂ ₎ა}$$ </br>
 
-[nox](https://github.com/transadori),[luc](https://github.com/toewrestlergod3000),[cam](https://github.com/cme-o),[suselle](https:/)/github.com/suselle),[sundew](https://github.com/FLY-PAPER-TRAP),[miw](https://github.com/Mewhehe),[borsalino](https://github.com/denguemon)
+[nox](https://github.com/transadori),[luc](https://github.com/toewrestlergod3000),[cam](https://github.com/cme-o),[suselle](https://github.com/suselle),[sundew](https://github.com/FLY-PAPER-TRAP),[miw](https://github.com/Mewhehe),[borsalino](https://github.com/denguemon)
 </p>
 
 <p align="center">
