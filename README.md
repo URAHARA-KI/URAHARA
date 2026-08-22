@@ -32,11 +32,14 @@ ${\text{\color{#A3BB73} 𝓣heㅤ\color{#5696AF} 𝓟𝓽 .ㅤ\color{#A3BB73} �
 
 [pt-friendships](https://github.com/pt-friendships)
 
+ </details>
+
 <br>
 <br>
 
 <p align="center">
-${\text{\color{#5696AF} ' 𝓜yㅤ\color{#A3BB73} 𝓞thersㅤ\color{#5696AF} 𝓐ltㅤ\color{#A3BB73} 𝓤sersㅤ\color{#5696AF} 𝓖hㅤ,}}$ <br>
+<details> <summary> <sub><a </sub
+>${\text{\color{#5696AF} ' 𝓜yㅤ\color{#A3BB73} 𝓞thersㅤ\color{#5696AF} 𝓐ltㅤ\color{#A3BB73} 𝓤sersㅤ\color{#5696AF} 𝓖hㅤ,}}$ <br>
 </p>
 
 [01](https://github.com/kuushanks)
