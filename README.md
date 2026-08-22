@@ -23,6 +23,8 @@ ${\text{\color{#A3BB73} 𝓖o ㅤ\color{#5696AF} 𝓕ollow myㅤ\color{#A3BB73} 
 <details> <summary> <sub><a </sub
 >${\text{\color{#5696AF} ' 𝓖oㅤ\color{#A3BB73} 𝓒heckㅤ\color{#5696AF} 𝓞utㅤ\color{#5696AF} 𝓣he othersㅤ\color{#A3BB73} 𝓤sersㅤ,}}$ <br>
 
+<br>
+
 <sub><a </sub>$
 ${\text{\color{#A3BB73} 𝓣heㅤ\color{#5696AF} 𝓟𝓽 .ㅤ\color{#A3BB73} 𝓐chievemntsㅤ\color{#5696AF} 𝓖hㅤ\color{#A3BB73} 𝓤sersㅤ,}}$ <br>
 
