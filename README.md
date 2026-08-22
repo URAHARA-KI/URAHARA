@@ -26,11 +26,7 @@ ${\text{\color{#A3BB73} 𝓖o ㅤ\color{#5696AF} 𝓕ollow myㅤ\color{#A3BB73} 
 <sub><a </sub>$
 ${\text{\color{#A3BB73} 𝓣heㅤ\color{#5696AF} 𝓟𝓽 .ㅤ\color{#A3BB73} 𝓐chievemntsㅤ\color{#5696AF} 𝓖hㅤ\color{#A3BB73} 𝓤sersㅤ,}}$ <br>
 
-[pt-stars](https://github.com/pt-stars) 
-
-[pt-fashion](https://github.com/pt-fashion)
-
-[pt-friendships](https://github.com/pt-friendships)
+##### <p align="center">[pt-stars](https://github.com/pt-stars),[pt-fashion](https://github.com/pt-fashion),[pt-friendships](https://github.com/pt-friendships)
 
  </details>
 
@@ -42,9 +38,7 @@ ${\text{\color{#A3BB73} 𝓣heㅤ\color{#5696AF} 𝓟𝓽 .ㅤ\color{#A3BB73} �
 >${\text{\color{#5696AF} ' 𝓜yㅤ\color{#A3BB73} 𝓞thersㅤ\color{#5696AF} 𝓐ltㅤ\color{#A3BB73} 𝓤sersㅤ\color{#5696AF} 𝓖hㅤ,}}$ <br>
 </p>
 
-[01](https://github.com/kuushanks)
-
-[02](https://github.com/crocsmoke)
+##### <p align="center">[01](https://github.com/kuushanks),[02](https://github.com/crocsmoke)
 
 </details>
 
