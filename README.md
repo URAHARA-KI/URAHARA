@@ -1,4 +1,4 @@
-https://img.sanishtech.com/u/90d4f2d6edc1f00b1652a34dd94c67ce.png
+
 ![](https://komarev.com/ghpvc/?username=CATAL0G&label=+ִֶ𝓕lame+𝓔mperor+🔥་༘&color=5696AF)
 
 <img align="left" width="300" src="https://img.sanishtech.com/u/bf33b8a21190118202fb413568fdbf8b.png">
