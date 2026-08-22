@@ -29,8 +29,8 @@ ${\text{\color{#A3BB73} 𝓣heㅤ\color{#5696AF} 𝓟𝓽 .ㅤ\color{#A3BB73} �
 ##### <p align="center">[pt-stars](https://github.com/pt-stars),[pt-fashion](https://github.com/pt-fashion),[pt-friendships](https://github.com/pt-friendships)
 
  </details>
+</div>
 
-<br>
 <br>
 
 <p align="center">
@@ -41,4 +41,5 @@ ${\text{\color{#A3BB73} 𝓣heㅤ\color{#5696AF} 𝓟𝓽 .ㅤ\color{#A3BB73} �
 ##### <p align="center">[01](https://github.com/kuushanks),[02](https://github.com/crocsmoke)
 
 </details>
+</div>
 
