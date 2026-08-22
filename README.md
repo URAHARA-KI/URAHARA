@@ -19,5 +19,46 @@ ${\text{\color{#5696AF} ' 𝓗eavy dnisㅤ\color{#A3BB73} 𝓦2i , 𝓐lways afk
 ${\text{\color{#A3BB73} 𝓖o ㅤ\color{#5696AF} 𝓕ollow myㅤ\color{#A3BB73} 𝓟reciousㅤ\color{#5696AF} 𝓞omfs orㅤ\color{#A3BB73} 𝓕ound familyㅤ,}}$ <br>
 </p>
 
-<p align="center">
->${\text{\color{#5696AF} ' 𝓖oㅤ\color{#A3BB73} 𝓒heckㅤ\color{#5696AF} 𝓞utㅤ\color{#5696AF} 𝓣he othersㅤ\color{#A3BB73} 𝓤sersㅤ,}}$ <br>
+
+<div align="center">
+<details>
+ㅤ<summary>$$
+${\text{\color{#5696AF} ' 𝓖oㅤ\color{#A3BB73} 𝓒heckㅤ\color{#5696AF} 𝓞utㅤ\color{#5696AF} 𝓣he othersㅤ\color{#A3BB73} 𝓤sersㅤ,}}$</summary>
+ㅤ<br>
+
+
+
+<div align="center ">
+  </table>
+  </tr>
+<th>
+${\text{\color{#421e20} ' 𝓐ppreciatedㅤ\color{#512830} 𝓣hankㅤ\color{#653644} 𝓨ouㅤ\color{#5e454a} 𝓟tㅤ\color{#565450} 𝓐ward𝘀ㅤ,}}$ <br>
+
+##### <p align="center"> [pt-stars](https://github.com/pt-stars)ㅤ[pt-fashion](https://github.com/pt-fashion)ㅤ[pt-friendships](https://github.com/pt-friendships)</p>
+
+</th>
+  </tr>
+  </table>
+</details>
+</div>
+
+
+</p>
+
+
+
+  <div align="center">
+<details>
+ㅤ<summary>$$
+\color{#A3BB73}\text{𝓐lt\ 𝓤}$$</summary>
+<br>
+
+
+  <div align="center">
+  </table>
+  </tr>
+<th>
+
+##### <p align="center"> [01](https://github.com/kuushanks)ㅤ[02](https://github.com/crocsmoke)ㅤ
+
+
