@@ -69,7 +69,11 @@ ${\text{\color{#A3BB73} ' 𝓐ppreciatedㅤ\color{#5696AF} 𝓣hankㅤ\color{#A3
 
 <img align="right" width="300" src="https://img.sanishtech.com/u/e9b16ea44219ba153c5e916807c5cfd7.png">
 
-half way wip
+<p align="center">
+${\text{\color{#A3BB73} ' 𝓢omewhereㅤ\color{#5696AF} 𝓘nㅤ\color{#A3BB73} op 𝓐reaㅤ\color{#5696AF} 𝓞rㅤ\color{#A3BB73} 𝓝ear lobbyㅤ,}}$ <br>
+</p>
 
+<p align="center">
+${\text{\color{#5696AF} 𝓓o notㅤ\color{#A3BB73} 𝓘ntsㅤ\color{#5696AF} ifㅤ\color{#A3BB73} 𝓎ou 𝓢upportㅤ\color{#5696AF} 𝓓arkshippers / 𝓟roshippersㅤ,}}$ <br>
 
 
