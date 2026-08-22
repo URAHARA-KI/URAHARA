@@ -50,7 +50,7 @@ ${\text{\color{#421e20} ' 𝓐ppreciatedㅤ\color{#512830} 𝓣hankㅤ\color{#65
   <div align="center">
 <details>
 ㅤ<summary>$$
-\color{#A3BB73}\text{𝓐lt\ 𝓤}$$</summary>
+\color{#A3BB73}\text{𝓐lt\ 𝓤sers}$$</summary>
 <br>
 
 
