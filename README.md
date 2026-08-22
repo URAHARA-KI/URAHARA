@@ -17,3 +17,4 @@ ${\text{\color{#5696AF} ' 𝓗eavy dnisㅤ\color{#A3BB73} 𝓦2i , 𝓐lways afk
 
 <p align="center">
 ${\text{\color{#A3BB73} 𝓖o ㅤ\color{#5696AF} 𝓕ollow myㅤ\color{#A3BB73} 𝓟reciousㅤ\color{#5696AF} 𝓞omfs orㅤ\color{#A3BB73} 𝓕ound familyㅤ,}}$ <br>
+</p>
