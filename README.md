@@ -76,4 +76,6 @@ ${\text{\color{#A3BB73} ' 𝓢omewhereㅤ\color{#5696AF} 𝓘nㅤ\color{#A3BB73}
 <p align="center">
 ${\text{\color{#5696AF} 𝓓o notㅤ\color{#A3BB73} 𝓘ntsㅤ\color{#5696AF} ifㅤ\color{#A3BB73} 𝓎ou 𝓢upportㅤ\color{#5696AF} 𝓓arkshippers / 𝓟roshippersㅤ,}}$ <br>
 
+${\text{\color{#A3BB73} 𝓟leaseㅤ\color{#5696AF} 𝓓o notㅤ\color{#A3BB73} 𝓒opyingㅤ\color{#5696AF} 𝓜yㅤ\color{#A3BB73} 𝓢kinsㅤ,}}$ <br>
+
 
