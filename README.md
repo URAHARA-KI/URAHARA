@@ -79,5 +79,4 @@ ${\text{\color{#5696AF} 𝓓o notㅤ\color{#A3BB73} 𝓘ntsㅤ\color{#5696AF} if
 ${\text{\color{#A3BB73} 𝓟leaseㅤ\color{#5696AF} 𝓓o notㅤ\color{#A3BB73} 𝓒opyingㅤ\color{#5696AF} 𝓜yㅤ\color{#A3BB73} 𝓢kinsㅤ,}}$ <br>
 
 <br>
-art creds : @tobiroo on x
 
