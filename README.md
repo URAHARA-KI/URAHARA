@@ -1,7 +1,7 @@
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=5696AF&style=flat-square&label=𓆩ꨄ︎𓆪+:&base=10006969)
 
-<img align="left" width="300" src="https://img.sanishtech.com/u/bf33b8a21190118202fb413568fdbf8b.png">
+<img align="left" width="300" src="https://img.sanishtech.com/u/a527b625e1806d8bf49cacee84d781dd.png">
 
 <p align="center">
 ${\text{\color{#5696AF} ' 𝒊'mㅤ\color{#A3BB73} 𝓛ostㅤ\color{#5696AF} inㅤ\color{#A3BB73} 𝓎ourㅤ\color{#5696AF} irisㅤ,}}$ <br>
@@ -67,7 +67,7 @@ ${\text{\color{#A3BB73} ' 𝓐ppreciatedㅤ\color{#5696AF} 𝓣hankㅤ\color{#A3
 </div>
 
 
-<img align="right" width="300" src="https://img.sanishtech.com/u/e9b16ea44219ba153c5e916807c5cfd7.png">
+<img align="right" width="300" src="https://img.sanishtech.com/u/85134b23ea79f8a4f8d7d4e3a32eec84.png">
 
 <p align="center">
 ${\text{\color{#A3BB73} ' 𝓢omewhereㅤ\color{#5696AF} 𝓘nㅤ\color{#A3BB73} op 𝓐reaㅤ\color{#5696AF} 𝓞rㅤ\color{#A3BB73} 𝓝ear lobbyㅤ,}}$ <br>
