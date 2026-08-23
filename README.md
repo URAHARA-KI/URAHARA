@@ -1,5 +1,5 @@
 
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=5696AF&style=flat-square&label=𓆩ꨄ︎𓆪+:&base=10006969)
+![](https://komarev.com/ghpvc/?username=CATAL0G&color=A89F20&style=flat-square&label=𓆩ꨄ︎𓆪+:&base=10006969)
 
 <img align="left" width="300" src="https://img.sanishtech.com/u/a527b625e1806d8bf49cacee84d781dd.png">
 
