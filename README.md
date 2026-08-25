@@ -13,7 +13,7 @@
 <div align="center">
 <details>
 ㅤ<summary>$$
-${\text{\color{#A8209D} ' 𝓖oㅤ\color{#A89F20} 𝓒heckㅤ\color{#A8209D} outㅤ\color{#A89F20} 𝓣he othersㅤ\color{#A8209D} usersㅤ,}}$</summary>
+${\text{\color{#BB75A6} ' 𝓖oㅤ\color{#D77D9E} 𝓒heckㅤ\color{#BB75A6} outㅤ\color{#D77D9E} 𝓣he othersㅤ\color{#BB75A6} usersㅤ,}}$</summary>
 ㅤ<br>
 
 
@@ -22,7 +22,7 @@ ${\text{\color{#A8209D} ' 𝓖oㅤ\color{#A89F20} 𝓒heckㅤ\color{#A8209D} out
   </table>
   </tr>
 <th>
-${\text{\color{#A89F20} ' appreciatedㅤ\color{#A8209D} 𝓣hankㅤ\color{#A89F20} 𝓨ouㅤ\color{#A8209D} ptㅤ\color{#A89F20} 𝓐ward𝘀ㅤ,}}$ <br>
+${\text{\color{#D77D9E} ' appreciatedㅤ\color{#BB75A6} 𝓣hankㅤ\color{#D77D9E} 𝓨ouㅤ\color{#BB75A6} ptㅤ\color{#D77D9E} 𝓐ward𝘀ㅤ,}}$ <br>
 
 ##### <p align="center"> [pt-stars](https://github.com/pt-stars)ㅤ[pt-fashion](https://github.com/pt-fashion)ㅤ[pt-friendships](https://github.com/pt-friendships)</p>
 
@@ -40,7 +40,7 @@ ${\text{\color{#A89F20} ' appreciatedㅤ\color{#A8209D} 𝓣hankㅤ\color{#A89F2
   <div align="center">
 <details>
 ㅤ<summary>$$
-\color{#A8209D}\text{alt\ 𝓤sers}$$</summary>
+\color{#BB75A6}\text{alt\ 𝓤sers}$$</summary>
 <br>
 
 
