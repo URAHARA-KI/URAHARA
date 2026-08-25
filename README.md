@@ -4,7 +4,7 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=A8209D&style=flat-square&label=𓆩ꨄ︎𓆪+:&base=10006969)
+![](https://komarev.com/ghpvc/?username=CATAL0G&color=BB75A6&style=flat-square&label=𓆩ꨄ︎𓆪+:&base=10006969)
 
 <div align="center">
 
