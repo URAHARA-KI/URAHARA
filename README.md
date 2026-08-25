@@ -65,3 +65,7 @@ $${\color{#D77D9E}idk}$$ $${\color{#BB75A6}what to}$$ $${\color{#D77D9E}add}$$ �
 <p align="center">
 $${\color{#BB75A6}ALSO}$$ $${\color{#D77D9E}please}$$ $${\color{#BB75A6}follow}$$ ㅤ $${\color{#D77D9E}1 of my}$$ $${\color{#BB75A6}oomfs pls🥺}$$ </br>
 
+<div align="center">
+
+old : [*@CATAL0G](https://github.com/CATAL0G)
+
