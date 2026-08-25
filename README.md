@@ -1,3 +1,5 @@
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cormorant&weight=300&size=17&duration=2000&pause=10&color=BB75A6&center=true&vCenter=true&width=500&lines=together+in+death;wont+you+die+tonight+4+lov?;baby+join+me+in+death;won't+you+die+?;baby+join+me+in+death" alt="Typing SVG" /></a>
+
 <img align="center" width="435" src="https://img.sanishtech.com/u/b4428fe7d5f29ec2cf6301bc97fbfdec.png">
 
 <div align="center">
