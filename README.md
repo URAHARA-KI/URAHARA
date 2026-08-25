@@ -1,3 +1,6 @@
+<img align="center" width="300" src="https://img.sanishtech.com/u/b4428fe7d5f29ec2cf6301bc97fbfdec.png">
+
+<div align="center">
 
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=A8209D&style=flat-square&label=𓆩ꨄ︎𓆪+:&base=10006969)
 
