@@ -6,7 +6,7 @@
 
 <div align="center">
 
-[*atabook*](https://kindatired.atabook.org/) ㅤ[*prns*](https://
+[*atabook*](https://kindatired.atabook.org/) ㅤ[*prns*](https://pronouns.cc/@little_lambs)
 
 <div align="center">
 <details>
