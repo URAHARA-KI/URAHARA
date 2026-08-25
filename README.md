@@ -59,3 +59,9 @@ ${\text{\color{#A89F20} ' appreciatedㅤ\color{#A8209D} 𝓣hankㅤ\color{#A89F2
 
 <img align="center" width="435" src="https://img.sanishtech.com/u/db99ba99cad2cc093af9a74d74c1a5ff.png">
 
+<p align="center">
+$${\color{#D77D9E}idk}$$ $${\color{#BB75A6}what to}$$ $${\color{#D77D9E}add}$$ ㅤ $${\color{#BB75A6}here so}$$ $${\color{#D77D9E}😂}$$ </br>
+
+<p align="center">
+$${\color{#BB75A6}ALSO}$$ $${\color{#D77D9E}please}$$ $${\color{#BB75A6}follow}$$ ㅤ $${\color{#D77D9E}1 of my}$$ $${\color{#BB75A6}oomfs pls🥺}$$ </br>
+
