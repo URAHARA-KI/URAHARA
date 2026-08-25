@@ -5,6 +5,10 @@
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=A8209D&style=flat-square&label=𓆩ꨄ︎𓆪+:&base=10006969)
 
 <div align="center">
+
+[*atabook*](https://kindatired.atabook.org/) ㅤ[*prns*](https://
+
+<div align="center">
 <details>
 ㅤ<summary>$$
 ${\text{\color{#A8209D} ' 𝓖oㅤ\color{#A89F20} 𝓒heckㅤ\color{#A8209D} outㅤ\color{#A89F20} 𝓣he othersㅤ\color{#A8209D} usersㅤ,}}$</summary>
