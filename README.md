@@ -8,7 +8,7 @@
 
 <div align="center">
 
-[*atabook*](https://kindatired.atabook.org/) ㅤ[*prns*](https://pronouns.cc/@little_lambs)
+[*atabook*](https://kindatired.atabook.org/) ㅤ[*prns*](https://httpsdawnangelstrawpage.straw.page)
 
 <div align="center">
 <details>
