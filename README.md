@@ -64,7 +64,7 @@ $${\color{#A3BB73}i am}$$ $${\color{#5696AF}stark}$$ $${\color{#A3BB73}in real}$
 $${\color{#A3BB73}btw}$$ $${\color{#5696AF}sign my ata}$$ $${\color{#A3BB73}or my}$$ ㅤ $${\color{#5696AF}strawpage}$$ $${\color{#A3BB73}oke?}$$ </br>
 
 
-<img align="center" width="200" src="https://img.sanishtech.com/u/ff3296d04fe02f35988310eff1ec2f24.png">
+<img align="right" width="200" src="https://img.sanishtech.com/u/ff3296d04fe02f35988310eff1ec2f24.png">
 
 <p align="center">
 $${\color{#D77D9E}idk}$$ $${\color{#BB75A6}what to}$$ $${\color{#D77D9E}add}$$ ㅤ $${\color{#BB75A6}here so}$$ $${\color{#D77D9E}😂}$$ </br>
