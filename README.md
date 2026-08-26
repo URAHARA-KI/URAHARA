@@ -1,6 +1,6 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cormorant&weight=300&size=17&duration=3000&pause=10&color=BB75A6&center=true&vCenter=true&width=500&lines=together+in+death;wont+you+die+tonight+4+lov?;baby+join+me+in+death;won't+you+die+?;baby+join+me+in+death" alt="Typing SVG" /></a>
 
-<img align="center" width="435" src="https://img.sanishtech.com/u/b4428fe7d5f29ec2cf6301bc97fbfdec.png">
+<img align="center" width="300" src="https://img.sanishtech.com/u/8b0d348678549e3f984a34ece49573a6.png">
 
 <div align="center">
 
@@ -57,7 +57,7 @@ ${\text{\color{#D77D9E} ' appreciatedㅤ\color{#BB75A6} 𝓣hankㅤ\color{#D77D9
 </details>
 </div>
 
-<img align="center" width="435" src="https://img.sanishtech.com/u/db99ba99cad2cc093af9a74d74c1a5ff.png">
+<img align="center" width="200" src="https://img.sanishtech.com/u/ff3296d04fe02f35988310eff1ec2f24.png">
 
 <p align="center">
 $${\color{#D77D9E}idk}$$ $${\color{#BB75A6}what to}$$ $${\color{#D77D9E}add}$$ ㅤ $${\color{#BB75A6}here so}$$ $${\color{#D77D9E}😂}$$ </br>
