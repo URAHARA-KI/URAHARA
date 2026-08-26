@@ -60,6 +60,9 @@ ${\text{\color{#D77D9E} ' appreciatedㅤ\color{#BB75A6} 𝓣hankㅤ\color{#D77D9
 <p align="center">
 $${\color{#A3BB73}i am}$$ $${\color{#5696AF}stark}$$ $${\color{#A3BB73}in real}$$ ㅤ $${\color{#5696AF}life!}$$ $${\color{#A3BB73}*proud}$$ </br>
 
+<p align="center">
+$${\color{#A3BB73}btw}$$ $${\color{#5696AF}sign my ata}$$ $${\color{#A3BB73}or my}$$ ㅤ $${\color{#5696AF}strawpage}$$ $${\color{#A3BB73}oke?}$$ </br>
+
 
 <img align="center" width="200" src="https://img.sanishtech.com/u/ff3296d04fe02f35988310eff1ec2f24.png">
 
