@@ -16,3 +16,13 @@
 
 old : [*@CATAL0G](https://github.com/CATAL0G)
 
+<div align="center">
+
+<br>
+
+[*arigathanks*]
+[pt-stars](https://github.com/pt-stars)
+[pt-fashion](https://github.com/pt-fashion)
+[pt-friendships)[https://github.com/pt-friendships)
+
+
