@@ -24,11 +24,9 @@ old : [*@CATAL0G](https://github.com/CATAL0G)
 
 [pt-stars](https://github.com/pt-stars) 
 
-<br>
 
 [pt-fashion](https://github.com/pt-fashion)
 
-<br>
 
 [pt-friendships](https://github.com/pt-friendships)
 
