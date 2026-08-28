@@ -22,8 +22,6 @@ old : [*@CATAL0G](https://github.com/CATAL0G)
 
 *arigathanks*
 
-<br>
-
 [pt-stars](https://github.com/pt-stars) 
 
 <br>
@@ -32,6 +30,6 @@ old : [*@CATAL0G](https://github.com/CATAL0G)
 
 <br>
 
-[pt-friendships)[https://github.com/pt-friendships)
+[pt-friendships](https://github.com/pt-friendships)
 
 
