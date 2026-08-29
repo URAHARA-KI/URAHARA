@@ -22,12 +22,6 @@ old : [*@CATAL0G](https://github.com/CATAL0G)
 
 *arigathanks*
 
-[pt-stars](https://github.com/pt-stars) 
-
-
-[pt-fashion](https://github.com/pt-fashion)
-
-
-[pt-friendships](https://github.com/pt-friendships)
+[pt-stars](https://github.com/pt-stars)ㅤ[pt-fashion](https://github.com/pt-fashion)ㅤ[pt-friendships](https://github.com/pt-friendships)
 
 <div align="center">
