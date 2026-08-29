@@ -1,5 +1,3 @@
-<div align="center">
-<img src="https://img.sanishtech.com/u/89b42be07f0760f59b6ab8c2f1d33a37.gif">
 
 <br>
 
@@ -8,7 +6,7 @@
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=F0E3B7&style=flat-square&label=🐶+:&base=10006969)
 
 <div align="center">
-<img src="https://img.sanishtech.com/u/4febf69d18402015b9deaadbb7c6f6eb.png">
+<img src="https://img.sanishtech.com/u/dff43550ce91ba2c43b3dd69863e1441.png">
 
 <div align="center">
 
@@ -33,4 +31,3 @@ old : [*@CATAL0G](https://github.com/CATAL0G)
 [pt-friendships](https://github.com/pt-friendships)
 
 <div align="center">
-<img src="https://img.sanishtech.com/u/89b42be07f0760f59b6ab8c2f1d33a37.gif">
