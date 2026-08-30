@@ -22,3 +22,4 @@
 [pt-stars](https://github.com/pt-stars)ㅤ[pt-fashion](https://github.com/pt-fashion)ㅤ[pt-friendships](https://github.com/pt-friendships)
 
 <div align="center">
+<img src="https://img.sanishtech.com/u/69f887e1f179896756a135751a66f7c3.png">
