@@ -45,3 +45,10 @@ $${\color{#A3BB73}do not}$$ $${\color{#5696AF}take inspo}$$ $${\color{#A3BB73}/c
 $${\color{#A3BB73}mental disable}$$ $${\color{#5696AF}ㅤsickly tired}$$ $${\color{#A3BB73}sometimes not on}$$ ㅤ $${\color{#5696AF}ㅤheavy dnis}$$ $${\color{#A3BB73}.}$$ </br>
 
 
+
+
+
+<div align="center">
+<img src="https://img.sanishtech.com/u/6aaa119b0f320e089389d10dd5f298ae.jpg">
+
+
