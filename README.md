@@ -31,3 +31,14 @@
 <div align="center">
 
 <img align="left" width="235" src="https://img.sanishtech.com/u/df70c73aa157f568feffee2429912570.png">
+
+<p align="center">
+$${\color{#A3BB73}fndms}$$ $${\color{#5696AF}dniuid ,}$$ $${\color{#A3BB73}w2i}$$ ㅤ $${\color{#5696AF}always}$$ $${\color{#A3BB73}afk}$$ </br>
+
+<p align="center">
+$${\color{#A3BB73}do not}$$ $${\color{#5696AF}take inspo}$$ $${\color{#A3BB73}/copy}$$ ㅤ $${\color{#5696AF}my skins}$$ $${\color{#A3BB73}.}$$ </br>
+
+<p align="center">
+$${\color{#A3BB73}mental disable}$$ $${\color{#5696AF}ㅤsickly tired}$$ $${\color{#A3BB73}sometimes not on}$$ ㅤ $${\color{#5696AF}ㅤheavy dnis}$$ $${\color{#A3BB73}.}$$ </br>
+
+
