@@ -26,4 +26,4 @@
 
 <div align="center">
 
-<img align="left" width="300" src="https://img.sanishtech.com/u/df70c73aa157f568feffee2429912570.png">
+<img align="left" width="200" src="https://img.sanishtech.com/u/df70c73aa157f568feffee2429912570.png">
