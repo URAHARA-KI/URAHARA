@@ -14,10 +14,6 @@
 
 <div align="center">
 
-old : [*@CATAL0G](https://github.com/CATAL0G)
-
-<div align="center">
-
 <br>
 
 *arigathanks*
