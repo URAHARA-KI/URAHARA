@@ -12,6 +12,9 @@
 
 <br>
 
+<p align="center">
+$${\color{#A3BB73}sign my}$$ $${\color{#5696AF}atabook}$$ $${\color{#A3BB73}or my}$$ ㅤ $${\color{#5696AF}strawpage}$$ $${\color{#A3BB73}!}$$ </br>
+
 [*atabook*](https://kindatired.atabook.org/) ㅤ[*strawpage*](https://httpsdawnangelstrawpage.straw.page)
 
 <div align="center">
