@@ -1,3 +1,5 @@
+<div align="center">
+<img align="center" width="200" src="https://img.sanishtech.com/u/ec18a42e12b983ec57f737034ff0a335.png">
 
 <br>
 
@@ -41,6 +43,11 @@ $${\color{#A3BB73}do not}$$ $${\color{#5696AF}take inspo}$$ $${\color{#A3BB73}/c
 
 <p align="center">
 $${\color{#A3BB73}mental disable}$$ $${\color{#5696AF}ㅤsickly tired}$$ $${\color{#A3BB73}sometimes not on}$$ ㅤ $${\color{#5696AF}ㅤheavy dnis}$$ $${\color{#A3BB73}.}$$ </br>
+
+<div align="center">
+<img align="center" width="200" src="https://img.sanishtech.com/u/ec18a42e12b983ec57f737034ff0a335.png">
+
+
 
 
 </br>
