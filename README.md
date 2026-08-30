@@ -25,4 +25,5 @@
 <img src="https://img.sanishtech.com/u/69f887e1f179896756a135751a66f7c3.png">
 
 <div align="center">
-<img src="https://img.sanishtech.com/u/df70c73aa157f568feffee2429912570.png"> width="200" height="auto"
+
+<img align="left" width="300" src="https://img.sanishtech.com/u/df70c73aa157f568feffee2429912570.png">
