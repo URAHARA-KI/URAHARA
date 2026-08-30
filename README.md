@@ -6,7 +6,7 @@
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=F0E3B7&style=flat-square&label=🐶+:&base=10006969)
 
 <div align="center">
-<img src="https://img.sanishtech.com/u/dff43550ce91ba2c43b3dd69863e1441.png">
+<img src="https://img.sanishtech.com/u/f203b9c6159c77806a6353f5c2ace981.png">
 
 <div align="center">
 
