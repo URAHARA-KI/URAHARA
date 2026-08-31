@@ -33,7 +33,7 @@ $${\color{#A3BB73}sign my}$$ $${\color{#5696AF}atabook}$$ $${\color{#A3BB73}or m
 
 <div align="center">
 
-<img align="left" width="235" src="https://img.sanishtech.com/u/e8186c57371421bc20429a9bf29283d2.png">
+<img align="left" width="235" src="https://img.sanishtech.com/u/fd9de38676128070d49c1943e128f225.png">
 
 <p align="center">
 $${\color{#A3BB73}fndms}$$ $${\color{#5696AF}dniuid ,}$$ $${\color{#A3BB73}w2i}$$ ㅤ $${\color{#5696AF}always}$$ $${\color{#A3BB73}afk}$$ </br>
