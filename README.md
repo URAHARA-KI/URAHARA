@@ -15,9 +15,9 @@
 <br>
 
 <p align="center">
-$${\color{#A3BB73}sign my}$$ $${\color{#5696AF}atabook}$$ $${\color{#A3BB73}or my}$$ ㅤ $${\color{#5696AF}strawpage}$$ $${\color{#A3BB73}!}$$ </br>
+$${\color{#FBBBDC}sign my}$$ $${\color{#FEE2E4}strawpage}$$ $${\color{#FBBBDC}and}$$ ㅤ $${\color{#FEE2E4}check my rentry}$$ $${\color{#FBBBDC}!}$$ </br>
 
-[*atabook*](https://kindatired.atabook.org/) ㅤ[*strawpage*](https://httpsdawnangelstrawpage.straw.page)
+[*rentry*] ㅤ[*strawpage*](https://httpsdawnangelstrawpage.straw.page)
 
 <div align="center">
 
@@ -36,13 +36,13 @@ $${\color{#A3BB73}sign my}$$ $${\color{#5696AF}atabook}$$ $${\color{#A3BB73}or m
 <img align="left" width="235" src="https://img.sanishtech.com/u/fd9de38676128070d49c1943e128f225.png">
 
 <p align="center">
-$${\color{#A3BB73}fndms}$$ $${\color{#5696AF}dniuid ,}$$ $${\color{#A3BB73}w2i}$$ ㅤ $${\color{#5696AF}always}$$ $${\color{#A3BB73}afk}$$ </br>
+$${\color{#FEE2E4}fndms}$$ $${\color{#FBBBDC}dniuid ,}$$ $${\color{#FEE2E4}w2i}$$ ㅤ $${\color{#FBBBDC}always}$$ $${\color{#FEE2E4}afk}$$ </br>
 
 <p align="center">
-$${\color{#A3BB73}do not}$$ $${\color{#5696AF}take inspo}$$ $${\color{#A3BB73}/copy}$$ ㅤ $${\color{#5696AF}my skins}$$ $${\color{#A3BB73}.}$$ </br>
+$${\color{#FBBBDC}do not}$$ $${\color{#FEE2E4}take inspo}$$ $${\color{#FBBBDC}/copy}$$ ㅤ $${\color{#FEE2E4}my skins}$$ $${\color{#FBBBDC}.}$$ </br>
 
 <p align="center">
-$${\color{#A3BB73}mental disable}$$ $${\color{#5696AF}ㅤsickly tired}$$ $${\color{#A3BB73}sometimes not on}$$ ㅤ $${\color{#5696AF}ㅤheavy dnis}$$ $${\color{#A3BB73}.}$$ </br>
+$${\color{#FEE2E4}mental disable}$$ $${\color{#FBBBDC}ㅤsickly tired}$$ $${\color{#FEE2E4}sometimes not on}$$ ㅤ $${\color{#FBBBDC}ㅤheavy dnis}$$ $${\color{#FEE2E4}.}$$ </br>
 
 
 
