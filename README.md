@@ -62,6 +62,6 @@ $${\color{#FEE2E4}mental disable}$$ $${\color{#FBBBDC}ㅤsickly tired}$$ $${\col
 
 <div align="center">
 
-my old user is CATAL0Glouu shittings
+my old user is CATAL0G ouu shittings
 
 
