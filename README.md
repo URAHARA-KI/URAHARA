@@ -10,7 +10,7 @@
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=F0E3B7&style=flat-square&label=🐶+:&base=10006969)
 
 <div align="center">
-<img src="https://img.sanishtech.com/u/f203b9c6159c77806a6353f5c2ace981.png">
+<img src="https://img.sanishtech.com/u/ece31ce6d3118f9847d31c3c54eefdc6.png">
 
 <div align="center">
 
@@ -35,7 +35,7 @@ $${\color{#A3BB73}sign my}$$ $${\color{#5696AF}atabook}$$ $${\color{#A3BB73}or m
 
 <div align="center">
 
-<img align="left" width="235" src="https://img.sanishtech.com/u/df70c73aa157f568feffee2429912570.png">
+<img align="left" width="235" src="https://img.sanishtech.com/u/e8186c57371421bc20429a9bf29283d2.png">
 
 <p align="center">
 $${\color{#A3BB73}fndms}$$ $${\color{#5696AF}dniuid ,}$$ $${\color{#A3BB73}w2i}$$ ㅤ $${\color{#5696AF}always}$$ $${\color{#A3BB73}afk}$$ </br>
