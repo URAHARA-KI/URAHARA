@@ -17,7 +17,7 @@
 <p align="center">
 $${\color{#D1C59E}sign my}$$ $${\color{#8E9696}strawpage}$$ $${\color{#D1C59E}and}$$ ㅤ $${\color{#8E9696}check my rentry}$$ $${\color{#FBBBDC}!}$$ </br>
 
-[*rentry*](https://rentry.co/strawhatschef)ㅤㅤ [*strawpage*](https://httpsdawnangelstrawpage.straw.page)
+[*rentry*](https://rentry.co/penguinss)ㅤㅤ [*strawpage*](https://httpsdawnangelstrawpage.straw.page)
 
 <div align="center">
 
