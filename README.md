@@ -5,7 +5,7 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=FEE2E4&style=flat-square&label=(≡^∇^≡)+&base=10006969)
+![](https://komarev.com/ghpvc/?username=CATAL0G&color=D1C59E&style=flat-square&label=(≡^∇^≡)+&base=10006969)
 
 <div align="center">
 <img src="https://img.sanishtech.com/u/2659087e2cb8dc46f0523f00c8495ae8.png">
@@ -15,7 +15,7 @@
 <br>
 
 <p align="center">
-$${\color{#FBBBDC}sign my}$$ $${\color{#FEE2E4}strawpage}$$ $${\color{#FBBBDC}and}$$ ㅤ $${\color{#FEE2E4}check my rentry}$$ $${\color{#FBBBDC}!}$$ </br>
+$${\color{#D1C59E}sign my}$$ $${\color{#8E9696}strawpage}$$ $${\color{#D1C59E}and}$$ ㅤ $${\color{#8E9696}check my rentry}$$ $${\color{#FBBBDC}!}$$ </br>
 
 [*rentry*](https://rentry.co/strawhatschef)ㅤㅤ [*strawpage*](https://httpsdawnangelstrawpage.straw.page)
 
@@ -34,13 +34,13 @@ $${\color{#FBBBDC}sign my}$$ $${\color{#FEE2E4}strawpage}$$ $${\color{#FBBBDC}an
 <div align="center">
 
 <p align="center">
-$${\color{#FEE2E4}fndms}$$ $${\color{#FBBBDC}dniuid ,}$$ $${\color{#FEE2E4}w2i}$$ ㅤ $${\color{#FBBBDC}always}$$ $${\color{#FEE2E4}afk}$$ </br>
+$${\color{#D1C59E}fndms}$$ $${\color{#8E9696}dniuid ,}$$ $${\color{#D1C59E}w2i}$$ ㅤ $${\color{#8E9696}always}$$ $${\color{#D1C59E}afk}$$ </br>
 
 <p align="center">
-$${\color{#FBBBDC}do not}$$ $${\color{#FEE2E4}take inspo}$$ $${\color{#FBBBDC}/copy}$$ ㅤ $${\color{#FEE2E4}my skins}$$ $${\color{#FBBBDC}.}$$ </br>
+$${\color{#D1C59E}do not}$$ $${\color{#8E9696}take inspo}$$ $${\color{#D1C59E}/copy}$$ ㅤ $${\color{#8E9696}my skins}$$ $${\color{#D1C59E}.}$$ </br>
 
 <p align="center">
-$${\color{#FEE2E4}mental disable}$$ $${\color{#FBBBDC}ㅤsickly tired}$$ $${\color{#FEE2E4}sometimes not on}$$ ㅤ $${\color{#FBBBDC}ㅤheavy dnis}$$ $${\color{#FEE2E4}.}$$ </br>
+$${\color{#D1C59E}mental disable}$$ $${\color{#8E9696}ㅤsickly tired}$$ $${\color{#D1C59E}sometimes not on}$$ ㅤ $${\color{#8E9696}ㅤheavy dnis}$$ $${\color{#D1C59E}.}$$ </br>
 
 
 
