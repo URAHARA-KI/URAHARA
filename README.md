@@ -19,7 +19,7 @@
 ㅤ<table>
 ㅤㅤ<tr>
 ㅤㅤㅤ<td>
-ㅤㅤㅤㅤ*jessㅤdawn ◆ㅤinfpㅤtrans[FTM]ㅤ.<br>ㅤbasic/heavy dnisㅤ※*
+ㅤㅤㅤㅤjessㅤdawn ◆ㅤinfpㅤtrans[FTM]ㅤ.<br>ㅤbasic/heavy dnisㅤ※
 
 
 </table>
