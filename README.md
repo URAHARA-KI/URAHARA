@@ -35,8 +35,6 @@ $${\color{#5D8A90}sign my}$$ $${\color{#58516E}strawpage}$$ $${\color{#5D8A90}an
 
 ────────────────────────
 
-<br>
-
 *also*
 
 *arigathanks*
