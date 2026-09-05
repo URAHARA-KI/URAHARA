@@ -67,9 +67,5 @@ $${\color{#D1C59E}mental disable}$$ $${\color{#8E9696}ㅤsickly tired}$$ $${\col
 </br>
 
 
-<div align="center">
-<img align="center" width="200" src="https://img.sanishtech.com/u/0e6148399392c6efa11d6fed6fd52e36.jpg">
-
-<div align="center">
 
 
