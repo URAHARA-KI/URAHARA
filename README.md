@@ -19,7 +19,7 @@
 ㅤ<table>
 ㅤㅤ<tr>
 ㅤㅤㅤ<td>
-ㅤㅤㅤㅤjessㅤdawn ◆ㅤinfpㅤtrans[FTM]ㅤ. basic/heavy dnisㅤeasily exhaustedㅤ※
+ㅤㅤㅤㅤjessㅤdawn ㅤ◆ㅤinfpㅤtrans[FTM]ㅤ.ㅤ basic/heavy dnisㅤeasily exhaustedㅤ※
 
 
 </table>
