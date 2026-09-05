@@ -21,9 +21,6 @@
 ㅤㅤㅤ<td>
 ㅤㅤㅤㅤjessㅤdawn ㅤ◆ㅤinfpㅤtrans[FTM]ㅤ.ㅤ basic/heavy dnisㅤeasily exhaustedㅤ※
 
-<div align="center">
-
- ────────────────────────
 
 </table>
 
@@ -35,6 +32,8 @@ $${\color{#5D8A90}sign my}$$ $${\color{#58516E}strawpage}$$ $${\color{#5D8A90}an
 [*rentry*](https://rentry.co/penguinss)ㅤㅤ [*strawpage*](https://httpsdawnangelstrawpage.straw.page)
 
 <div align="center">
+
+────────────────────────
 
 <br>
 
