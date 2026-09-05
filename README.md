@@ -27,7 +27,7 @@
 <br>
 
 <p align="center">
-$${\color{#D1C59E}sign my}$$ $${\color{#8E9696}strawpage}$$ $${\color{#D1C59E}and}$$ ㅤ $${\color{#8E9696}check my rentry}$$ $${\color{#FBBBDC}!}$$ </br>
+$${\color{#5D8A90}sign my}$$ $${\color{#58516E}strawpage}$$ $${\color{#5D8A90}and}$$ ㅤ $${\color{#58516E}check my rentry}$$ $${\color{#5D8A90}!}$$ </br>
 
 [*rentry*](https://rentry.co/penguinss)ㅤㅤ [*strawpage*](https://httpsdawnangelstrawpage.straw.page)
 
@@ -46,13 +46,13 @@ $${\color{#D1C59E}sign my}$$ $${\color{#8E9696}strawpage}$$ $${\color{#D1C59E}an
 <div align="center">
 
 <p align="center">
-$${\color{#D1C59E}fndms}$$ $${\color{#8E9696}dniuid ,}$$ $${\color{#D1C59E}w2i}$$ ㅤ $${\color{#8E9696}always}$$ $${\color{#D1C59E}afk}$$ </br>
+$${\color{#58516E}fndms}$$ $${\color{#5D8A90}dniuid ,}$$ $${\color{#58516E}w2i}$$ ㅤ $${\color{#5D8A90}always}$$ $${\color{#58516E}afk}$$ </br>
 
 <p align="center">
-$${\color{#D1C59E}do not}$$ $${\color{#8E9696}take inspo}$$ $${\color{#D1C59E}/copy}$$ ㅤ $${\color{#8E9696}my skins}$$ $${\color{#D1C59E}.}$$ </br>
+$${\color{#5D8A90}do not}$$ $${\color{#58516E}take inspo}$$ $${\color{#5D8A90}/copy}$$ ㅤ $${\color{#58516E}my skins}$$ $${\color{#5D8A90}.}$$ </br>
 
 <p align="center">
-$${\color{#D1C59E}mental disable}$$ $${\color{#8E9696}ㅤsickly tired}$$ $${\color{#D1C59E}sometimes not on}$$ ㅤ $${\color{#8E9696}ㅤheavy dnis}$$ $${\color{#D1C59E}.}$$ </br>
+$${\color{#58516E}mental disable}$$ $${\color{#5D8A90}ㅤsickly tired}$$ $${\color{#58516E}sometimes not on}$$ ㅤ $${\color{#5D8A90}ㅤheavy dnis}$$ $${\color{#58516E}.}$$ </br>
 
 
 
