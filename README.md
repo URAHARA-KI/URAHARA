@@ -8,7 +8,7 @@
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=D1C59E&style=flat-square&label=(≡^∇^≡)+&base=10006969)
 
 <div align="center">
-<img src="https://img.sanishtech.com/u/cc10c9e0b2586f4983bf10a825d48972.png">
+<img src="https://img.sanishtech.com/u/26c45b2376175a324a3c4b45a8d5367d.png">
 
 <div align="center">
 
