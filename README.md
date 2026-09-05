@@ -5,7 +5,7 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=D1C59E&style=flat-square&label=(≡^∇^≡)+&base=10006969)
+![](https://komarev.com/ghpvc/?username=CATAL0G&color=5D8A90&style=flat-square&label=(≡^∇^≡)+&base=696969)
 
 <div align="center">
 <img src="https://img.sanishtech.com/u/26c45b2376175a324a3c4b45a8d5367d.png">
