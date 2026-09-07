@@ -1,7 +1,7 @@
 <div align="center">
 <img src="https://img.sanishtech.com/u/72e9203627b06d6fd50c8b73c574b740.gif">
 
-[*rentry*](https://rentry.co/kidlawz)ㅤㅤ [*strawpage*](https://httpsdawnangelstrawpage.straw.page)
+[*rentry*](https://rentry.co/Lazyjustice)ㅤㅤ [*strawpage*](https://httpsdawnangelstrawpage.straw.page)
 
 <div align="center">
 
