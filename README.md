@@ -30,7 +30,7 @@ ${\color{#E559C1} That's \space Right, \space i'm \space made \space of \space f
 
 *oomfies*
 
-[miw](https://giithub.com/Mewhehe)ㅤ[nox](https://github.com/transadori)ㅤ[luc](https://github.com/toewrestlergod3000)ㅤ[cam](https://github.com/cme-o)ㅤ[koro](https://github.com/suselle)ㅤ[sundew](https://github.com/FLY-PAPER-TRAP)ㅤ[borsalino](https://github.com/denguemon)
+[miw](https://giithub.com/Mewhehe)ㅤ[nox](https://github.com/transadori)ㅤ[luc](https://github.com/toewrestlergod3000)ㅤ[cam](https://github.com/cme-o)ㅤ[koro](https://github.com/suselle)ㅤ[sundew](https://github.com/FLY-PAPER-TRAP)ㅤ[tusk](https://github.com/verjty)ㅤ[borsalino](https://github.com/denguemon)ㅤ
 
 
 
