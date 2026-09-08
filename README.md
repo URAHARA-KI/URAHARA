@@ -12,6 +12,8 @@ ${\color{#E559C1} That's \space Right, \space i'm \space made \space of \space f
 
 [*rentry*](https://rentry.co/Lazyjustice)ㅤㅤ [*strawpage*](https://httpsdawnangelstrawpage.straw.page)
 ㅤ
+[*guns.lol*](https://guns.lol/angeldawn)
+ㅤ
 [*Art credits*](https://x.com/kith_0121)
 ㅤ
 [*Old user*](https://github.com/CATAL0G)
