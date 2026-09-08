@@ -1,4 +1,4 @@
-
+![](https://komarev.com/ghpvc/?username=cemetery-girl&color=E559C1&style=flat-square&label=₍ᐢ. .ᐢ₎+&base=7777)
 
 <div align="center">
 <img src="https://img.sanishtech.com/u/a300410829071248eb36fb77ba3dcbaa.png">
