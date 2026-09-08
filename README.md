@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://img.sanishtech.com/u/72e9203627b06d6fd50c8b73c574b740.gif">
+<img src="https://img.sanishtech.com/u/a300410829071248eb36fb77ba3dcbaa.png">
 
 [*rentry*](https://rentry.co/Lazyjustice)ㅤㅤ [*strawpage*](https://httpsdawnangelstrawpage.straw.page)
 
