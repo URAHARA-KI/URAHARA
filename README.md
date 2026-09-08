@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=000000&style=flat-square&label=₍ᐢ..ᐢ₎+:&base=676767)
+![](https://komarev.com/ghpvc/?username=CATAL0G&color=E559C1&style=flat-square&label=₍ᐢ..ᐢ₎+♡&base=676767)
 
 <div align="center">
 <img src="https://img.sanishtech.com/u/a300410829071248eb36fb77ba3dcbaa.png">
