@@ -32,6 +32,11 @@ ${\color{#E559C1} That's \space Right, \space i'm \space made \space of \space f
 
 [miw](https://giithub.com/Mewhehe)ㅤ[nox](https://github.com/transadori)ㅤ[luc](https://github.com/toewrestlergod3000)ㅤ[cam](https://github.com/cme-o)ㅤ[koro](https://github.com/suselle)ㅤ[sundew](https://github.com/FLY-PAPER-TRAP)ㅤ[tusk](https://github.com/verjty)ㅤ[borsalino](https://github.com/denguemon)ㅤ
 
+<div align="center">
+<img src="https://img.sanishtech.com/u/9a81cc75826d9f11e85f73229a7ee1c4.png">
 
+<div align="center">
+
+${\color{#e5b1c5} I \space don't \space know \space what \space to \space feel \space or \space do \space at \space this \space time,}$ ${\color{#a95f89} I'm \space sorry.}$ ಣ𓈒ֵ۫
 
 
