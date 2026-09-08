@@ -10,7 +10,7 @@ ${\color{#E559C1} You've \space realized \space it \space haven't \space you? \s
 
 ${\color{#E559C1} That's \space Right, \space i'm \space made \space of \space flesh \space flesh \space flesh. \space ₣ⱡɇ₴ⱨ. \space the \space real,real}$ ${\color{#FEAF30} real \space bear meat.}$ ಣ𓈒ֵ۫
 
-[*rentry*](https://rentry.co/Lazyjustice)ㅤㅤ [*strawpage*](https://httpsdawnangelstrawpage.straw.page)
+[*rentry*](https://rentry.co/weremadeofmeat)ㅤㅤ [*strawpage*](https://httpsdawnangelstrawpage.straw.page)
 ㅤ
 [*Art credits*](https://x.com/kith_0121)
 ㅤ
