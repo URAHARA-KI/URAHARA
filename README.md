@@ -39,4 +39,6 @@ ${\color{#E559C1} That's \space Right, \space i'm \space made \space of \space f
 
 ${\color{#E559C1} heavily \space tired \space easily \space exhausted \space . \space rarely \space school \space , \space fndms \space dniud \space ♡ྀི}$ ${\color{#FEAF30} no copying \space skins allowed}$ ಣ𓈒ֵ۫
 
+${\color{#E559C1} respectfully \space don't \space copy \space my \space github \space w/o \space permission \space . \space blocks \space or \space hide freely}$ ${\color{#FEAF30} . \space .}$ ಣ𓈒ֵ۫
+
 
