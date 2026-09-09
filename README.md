@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=E559C1&style=flat-square&label=₍ᐢ..ᐢ₎+♡&base=777777)
 
 <div align="center">
-<img src="https://img.sanishtech.com/u/a300410829071248eb36fb77ba3dcbaa.png">
+<img src="https://img.sanishtech.com/u/673c1c851665d9927f8e2e4bfbe28ab3.png">
 
 <div align="center">
 ${\color{#E559C1} You've \space realized \space it \space haven't \space you? \space The \space Real \space Real \space Real \space me! \space isn't made of}$ ${\color{#FEAF30} of \space love and dreams.}$ ಣ𓈒ֵ۫
@@ -37,7 +37,7 @@ ${\color{#E559C1} That's \space Right, \space i'm \space made \space of \space f
 [miw](https://github.com/Mewhehe)ㅤ[nox](https://github.com/transadori)ㅤ[luc](https://github.com/toewrestlergod3000)ㅤ[cam](https://github.com/cme-o)ㅤ[koro](https://github.com/suselle)ㅤ[sundew](https://github.com/FLY-PAPER-TRAP)ㅤ[tusk](https://github.com/verjty)ㅤ[borsalino](https://github.com/denguemon)ㅤ
 
 <div align="center">
-<img src="https://img.sanishtech.com/u/a1db7c14a9d30178b25d01cdd9ec263a.png">
+<img src="https://img.sanishtech.com/u/116eba797634c8eafc8ace0f43173f51.png">
 
 <div align="center">
 
