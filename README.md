@@ -11,7 +11,7 @@ $${\color{#E7D76F}jess}$$ $${\color{#D07192}or}$$ $${\color{#E7D76F}dawn}$$ ㅤ 
 
 $${\color{#D07192}check}$$ $${\color{#E7D76F}my}$$ $${\color{#D07192}rentry}$$ ㅤ $${\color{#E7D76F}and sign}$$ $${\color{#D07192}my straw}$$ </br>
 
-[*rentry*](https://rentry.co/weremadeofflesh)ㅤㅤ [*strawpage*](https://httpsdawnangelstrawpage.straw.page)
+[*rentry*](https://rentry.co/forgersfam)ㅤㅤ [*strawpage*](https://httpsdawnangelstrawpage.straw.page)
 
 <div align="center">
 
