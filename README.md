@@ -17,6 +17,9 @@ $${\color{#558A66}check}$$ $${\color{#276658}my}$$ $${\color{#B0A271}rentry}$$ �
 
 ————————————————————
 
-[pt-stars](https://github.com/pt-stars)ㅤ[pt-fashion](https://github.com/pt-fashion)ㅤ[pt-friendships](https://github.com/pt-friendships)
+[*pt-stars*](https://github.com/pt-stars)ㅤ[*pt-fashion*](https://github.com/pt-fashion)ㅤ[*pt-friendships*](https://github.com/pt-friendships)
 
+$${\color{#558A66}no}$$ $${\color{#276658}copying}$$ $${\color{#B0A271}my}$$ ㅤ $${\color{#276658}skins}$$ $${\color{#276658}allowed}$$ </br>
+
+$${\color{#558A66}please}$$ $${\color{#276658}follow}$$ $${\color{#B0A271}one of}$$ ㅤ $${\color{#276658}my}$$ $${\color{#276658}oomfs!}$$ </br>
 
