@@ -7,9 +7,9 @@
 
 <div align="center">
 
-$${\color{#558A66}jess}$$ $${\color{#276658}or}$$ $${\color{#B0A271}dawn}$$ ㅤ $${\color{#276658}♡ྀི}$$ $${\color{#276658}fndms dniud}$$ </br>
+$${\color{#E7D76F}jess}$$ $${\color{#D07192}or}$$ $${\color{#E7D76F}dawn}$$ ㅤ $${\color{#D07192}♡ྀི}$$ $${\color{#E7D76F}fndms dniud}$$ </br>
 
-$${\color{#558A66}check}$$ $${\color{#276658}my}$$ $${\color{#B0A271}rentry}$$ ㅤ $${\color{#276658}and sign}$$ $${\color{#276658}my straw}$$ </br>
+$${\color{#D07192}check}$$ $${\color{#E7D76F}my}$$ $${\color{#D07192}rentry}$$ ㅤ $${\color{#E7D76F}and sign}$$ $${\color{#D07192}my straw}$$ </br>
 
 [*rentry*](https://rentry.co/weremadeofflesh)ㅤㅤ [*strawpage*](https://httpsdawnangelstrawpage.straw.page)
 
@@ -26,7 +26,9 @@ $${\color{#558A66}check}$$ $${\color{#276658}my}$$ $${\color{#B0A271}rentry}$$ �
 <div align="center">
 <img src="https://img.sanishtech.com/u/142997a480aa634245708079660c020f.gif">
 
-$${\color{#558A66}no}$$ $${\color{#276658}copying}$$ $${\color{#B0A271}my}$$ ㅤ $${\color{#276658}skins}$$ $${\color{#276658}allowed}$$ </br>
+<div align="center">
 
-$${\color{#558A66}please}$$ $${\color{#276658}follow}$$ $${\color{#B0A271}one of}$$ ㅤ $${\color{#276658}my}$$ $${\color{#276658}oomfs!}$$ </br>
+$${\color{#E7D76F}no}$$ $${\color{#D07192}copying}$$ $${\color{#E7D76F}my}$$ ㅤ $${\color{#D07192}skins}$$ $${\color{#E7D76F}allowed}$$ </br>
+
+$${\color{#D07192}please}$$ $${\color{#E7D76F}follow}$$ $${\color{#D07192}one of}$$ ㅤ $${\color{#E7D76F}my}$$ $${\color{#D07192}oomfs!}$$ </br>
 
