@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=D07192&style=flat-square&label=₍ᐢ..ᐢ₎+♡&base=777777)
 
 <div align="center">
-<img align="center" width="200" src="https://img.sanishtech.com/u/0e3d1046dde42739f7e482a4030ad416.png">
+<img align="center" width="200" src="https://img.sanishtech.com/u/6b696d36c6a1f99161787241834a7cc6.png">
 
 <div align="center">
 
@@ -24,7 +24,7 @@ $${\color{#D07192}check}$$ $${\color{#E7D76F}my}$$ $${\color{#D07192}rentry}$$ �
 ————————————————————
 
 <div align="center">
-<img src="https://img.sanishtech.com/u/142997a480aa634245708079660c020f.gif">
+<img src="">
 
 <div align="center">
 
