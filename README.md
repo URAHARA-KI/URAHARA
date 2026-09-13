@@ -24,7 +24,7 @@ $${\color{#558A66}check}$$ $${\color{#276658}my}$$ $${\color{#B0A271}rentry}$$ �
 ————————————————————
 
 <div align="center">
-<img src="https://img.sanishtech.com/u/10d937f143d337c1d05f8d93f6b07bbf.gif">
+<img src="https://img.sanishtech.com/u/380336c9c1a285cecfe85bdf1ec48c73.gif">
 
 $${\color{#558A66}no}$$ $${\color{#276658}copying}$$ $${\color{#B0A271}my}$$ ㅤ $${\color{#276658}skins}$$ $${\color{#276658}allowed}$$ </br>
 
