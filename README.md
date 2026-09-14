@@ -7,7 +7,7 @@
 
 <div align="center">
 
-$${\color{#E7D76F}jess}$$ $${\color{#D07192}or}$$ $${\color{#E7D76F}dawn}$$ ㅤ $${\color{#D07192}♡ྀི}$$ $${\color{#E7D76F}fndms dniud}$$ </br>
+$${\color{#E7D76F}jess}$$ $${\color{#D07192}or}$$ $${\color{#E7D76F}dawn}$$ ㅤ $${\color{#D07192}♡ྀི}$$ $${\color{#E7D76F}fndms dniuid}$$ </br>
 
 $${\color{#D07192}check}$$ $${\color{#E7D76F}my}$$ $${\color{#D07192}rentry}$$ ㅤ $${\color{#E7D76F}and sign}$$ $${\color{#D07192}my straw}$$ </br>
 
