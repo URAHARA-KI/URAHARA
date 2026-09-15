@@ -4,7 +4,7 @@
 
 <div align="center">
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cormorant&weight=300&size=17&duration=2000&pause=10&color=B6B8D5&center=true&width=500&lines=I'm+obsessed%2C+i+said%1C+re-re-REBECCA%2C+i+think+I'm+a+little+bit+OBSESSED." alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cormorant&weight=300&size=17&duration=2000&pause=10&color=B6B8D5&center=true&width=500&lines=I'm+obsessed%2C+i+said%1C+re-re-REBECCA%2C+i+think+I'm+a+little+bit+OBSESSED." alt="obsessed" /></a>
 
 <div align="center">
 <img align="left" width="300" src="https://img.sanishtech.com/u/5c2fa85aa9383d536e344147b617dc0a.png">
