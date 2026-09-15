@@ -29,4 +29,7 @@ $${\color{#C0C0C0}check}$$ $${\color{#C76F9F}my}$$ $${\color{#C0C0C0}rentry}$$ �
 <div align=center">
 <img align="right" width="300" src="https://img.sanishtech.com/u/fb4efb1cc0b9d07d66f8938384128ffb.png">
 
-$${\color{#C0C0C0}check}$$ $${\color{#C76F9F}my}$$ $${\color{#C0C0C0}rentry}$$ ㅤ $${\color{#C76F9F}and sign}$$ $${\color{#C76F9F}my straw}$$ </br>
+$${\color{#C0C0C0}take}$$ $${\color{#C76F9F}it}$$ $${\color{#C0C0C0}slow}$$ ㅤ $${\color{#C76F9F}take it}$$ $${\color{#C76F9F}easy on me}$$ </br>
+
+$${\color{#C0C0C0}my moon}$$ $${\color{#C76F9F}the moon}$$ $${\color{#C0C0C0}and}$$ ㅤ $${\color{#C76F9F}my man}$$ $${\color{#C76F9F}. .}$$ </br>
+
