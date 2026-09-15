@@ -4,7 +4,7 @@
 
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=First+line+of+text;Second+line+of+text)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=I'm+Obsessed;I said;Re-re-REBECCA;i think+I'm a+little bit;OBSESSED.)](https://git.io/typing-svg)
 
 <div align="center">
 <img align="left" width="300" src="https://img.sanishtech.com/u/5c2fa85aa9383d536e344147b617dc0a.png">
