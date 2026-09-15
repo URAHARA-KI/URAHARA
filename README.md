@@ -1,6 +1,6 @@
 <div align="center">
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cormorant&weight=300&size=17&duration=2000&pause=10&color=B6B8D5&center=true&width=500&lines=dein+duft%2C+dein+haar%2C+;sweetie;du+schmeckst+so+wunderbar;mh..." alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cormorant&weight=300&size=17&duration=2000&pause=10&color=B6B8D5&center=true&width=500&lines=my+moon%2C+the+moon%2C+;and;my+man+my+moon;the+moon;and;my+man..." alt="Typing SVG" /></a>
 
 <div align="center">
 <img align="left" width="300" src="https://img.sanishtech.com/u/5c2fa85aa9383d536e344147b617dc0a.png">
