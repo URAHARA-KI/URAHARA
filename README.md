@@ -1,9 +1,5 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=D07192&style=flat-square&label=₍ᐢ..ᐢ₎+♡&base=777777)
-
-<div align="center">
-
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=I'm+Obsessed;I said;Re-re-REBECCA;i think+I'm a+little bit;OBSESSED.)](https://git.io/typing-svg)
 
 <div align="center">
