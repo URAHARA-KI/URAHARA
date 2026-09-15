@@ -26,3 +26,7 @@ $${\color{#C0C0C0}check}$$ $${\color{#C76F9F}my}$$ $${\color{#C0C0C0}rentry}$$ ã
 <div align=center">
 <img align="center" width="200" src="https://img.sanishtech.com/u/60b985b0823c154b84ee653a88b56da6.png">
 
+<div align=center">
+<img align="right" width="300" src="https://img.sanishtech.com/u/fb4efb1cc0b9d07d66f8938384128ffb.png">
+
+$${\color{#C0C0C0}check}$$ $${\color{#C76F9F}my}$$ $${\color{#C0C0C0}rentry}$$ ã…¤ $${\color{#C76F9F}and sign}$$ $${\color{#C76F9F}my straw}$$ </br>
