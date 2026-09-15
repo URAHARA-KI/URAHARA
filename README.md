@@ -33,3 +33,5 @@ $${\color{#C0C0C0}take}$$ $${\color{#C76F9F}it}$$ $${\color{#C0C0C0}slow}$$ ㅤ 
 
 $${\color{#C0C0C0}my moon}$$ $${\color{#C76F9F}the moon}$$ $${\color{#C0C0C0}and}$$ ㅤ $${\color{#C76F9F}my man}$$ $${\color{#C76F9F}. .}$$ </br>
 
+<div align=center">
+<img align="left" width="200" src="https://img.sanishtech.com/u/4441528494d69f82e2ac348e411e2305.png">
