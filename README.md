@@ -27,11 +27,11 @@ $${\color{#C0C0C0}check}$$ $${\color{#C76F9F}my}$$ $${\color{#C0C0C0}rentry}$$ �
 <img align="center" width="200" src="https://img.sanishtech.com/u/60b985b0823c154b84ee653a88b56da6.png">
 
 <div align=center">
-<img align="right" width="300" src="https://img.sanishtech.com/u/fb4efb1cc0b9d07d66f8938384128ffb.png">
+<img align="right" width="200" src="https://img.sanishtech.com/u/fb4efb1cc0b9d07d66f8938384128ffb.png">
 
 $${\color{#C0C0C0}take}$$ $${\color{#C76F9F}it}$$ $${\color{#C0C0C0}slow}$$ ㅤ $${\color{#C76F9F}take it}$$ $${\color{#C76F9F}easy on me}$$ </br>
 
 $${\color{#C0C0C0}my moon}$$ $${\color{#C76F9F}the moon}$$ $${\color{#C0C0C0}and}$$ ㅤ $${\color{#C76F9F}my man}$$ $${\color{#C76F9F}. .}$$ </br>
 
 <div align=center">
-<img align="left" width="200" src="https://img.sanishtech.com/u/4441528494d69f82e2ac348e411e2305.png">
+<img align="left" width="100" src="https://img.sanishtech.com/u/4441528494d69f82e2ac348e411e2305.png">
