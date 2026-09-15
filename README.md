@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=D07192&style=flat-square&label=₍ᐢ..ᐢ₎+♡&base=777777)
 
 <div align="center">
-<img align="center" width="200" src="https://img.sanishtech.com/u/6b696d36c6a1f99161787241834a7cc6.png">
+<img align="left" width="300" src="https://img.sanishtech.com/u/5c2fa85aa9383d536e344147b617dc0a.png">
 
 <div align="center">
 
@@ -22,13 +22,4 @@ $${\color{#D07192}check}$$ $${\color{#E7D76F}my}$$ $${\color{#D07192}rentry}$$ �
 <div align="center">
 
 ————————————————————
-
-<div align="center">
-<img src="https://img.sanishtech.com/u/ed29c09891f37c6ee5bae2bf5608aed4.gif">
-
-<div align="center">
-
-$${\color{#E7D76F}no}$$ $${\color{#D07192}copying}$$ $${\color{#E7D76F}my}$$ ㅤ $${\color{#D07192}skins}$$ $${\color{#E7D76F}allowed}$$ </br>
-
-$${\color{#D07192}please}$$ $${\color{#E7D76F}follow}$$ $${\color{#D07192}one of}$$ ㅤ $${\color{#E7D76F}my}$$ $${\color{#D07192}oomfs!}$$ </br>
 
