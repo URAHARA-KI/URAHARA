@@ -2,13 +2,8 @@
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cormorant&weight=300&size=17&duration=3015&pause=10&color=C76F9F&center=true&width=500&lines=my+moon;the+moon+and+my+man;my+moon;the+moon+and;my+MAN.." alt="Typing SVG" /></a>
 
-
-
-<div align="center">
-ㅤㅤ<table border="0">
-ㅤㅤㅤ<tr>
-ㅤㅤㅤㅤㅤ<td align="center" valign="middle" width="30%">
-ㅤㅤㅤㅤㅤ<img src="https://img.sanishtech.com/u/4dce7a751e8eb9109c8ffe3e46cd5bd5.png" alt="Project Visual" width"110%" />
+<div align=center">
+<img align="center" width="200" src="https://img.sanishtech.com/u/4dce7a751e8eb9109c8ffe3e46cd5bd5.png">
 
 $${\color{#C76F9F}jess}$$ $${\color{#C0C0C0}or}$$ $${\color{#C76F9F}dawn}$$ ㅤ $${\color{#C0C0C0}♡ྀི}$$ $${\color{#C76F9F}fndms dniuid}$$ </br>
 
