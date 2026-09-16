@@ -34,4 +34,7 @@ $${\color{#C0C0C0}do not}$$ $${\color{#C76F9F}copy my}$$ $${\color{#C0C0C0}skins
 
 ────────────────────────
 
+$${\color{#C0C0C0}basic dnis}$$ $${\color{#C76F9F},}$$ $${\color{#C0C0C0}hide freely}$$ ㅤ $${\color{#C76F9F}and }$$ $${\color{#C76F9F}-15 dni}$$ </br>
+
+
 
