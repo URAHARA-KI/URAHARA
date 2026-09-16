@@ -39,6 +39,14 @@ $${\color{#C0C0C0}basic dnis}$$ $${\color{#C76F9F},}$$ $${\color{#C0C0C0}hide fr
 
 
 <div align=center">
-<img align="center" width="200" src="https://img.sanishtech.com/u/a3a971c802e10da21e863ef1a5445d7d.png">
+<img align="left" width="200" src="https://img.sanishtech.com/u/a3a971c802e10da21e863ef1a5445d7d.png">
+
+ღ
+
+
+$${\color{#C0C0C0}love you}$$ $${\color{#C76F9F}love you}$$ $${\color{#C0C0C0}love you}$$ ㅤ $${\color{#C76F9F}love you}$$ $${\color{#C76F9F}love you}$$ </br>
+
+$${\color{#C0C0C0}love me}$$ $${\color{#C76F9F}love me}$$ $${\color{#C0C0C0}love me}$$ ㅤ $${\color{#C76F9F}love me}$$ $${\color{#C76F9F}love me}$$ </br>
+
 
 
