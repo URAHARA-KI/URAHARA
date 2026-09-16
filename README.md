@@ -48,5 +48,14 @@ $${\color{#C0C0C0}love you}$$ $${\color{#C76F9F}love you}$$ $${\color{#C0C0C0}lo
 
 $${\color{#C0C0C0}love me}$$ $${\color{#C76F9F}love me}$$ $${\color{#C0C0C0}love me}$$ ㅤ $${\color{#C76F9F}love me}$$ $${\color{#C76F9F}love me}$$ </br>
 
+────────────────────────
+
+*art credits*
+
+atmsgea
+
+yy0505_
+
+LUO
 
 
