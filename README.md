@@ -28,7 +28,6 @@ $${\color{#C0C0C0}w2i}$$ $${\color{#C76F9F}always}$$ $${\color{#C0C0C0},}$$ ㅤ 
 
 $${\color{#C0C0C0}do not}$$ $${\color{#C76F9F}copy my}$$ $${\color{#C0C0C0}skins}$$ ㅤ $${\color{#C76F9F}w/o}$$ $${\color{#C76F9F}permissions}$$ </br>
 
-<div align=center">
 <img align="center" width="300" src="https://img.sanishtech.com/u/b3034bc21d455c70dfd02644ee3c6dfb.png">
 
 
