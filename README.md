@@ -23,3 +23,9 @@ $${\color{#C0C0C0}check}$$ $${\color{#C76F9F}my}$$ $${\color{#C0C0C0}rentry}$$ �
 
 <div align=center">
 <img align="center" width="200" src="https://img.sanishtech.com/u/136f4393cb3e75d7abb4b1553d659c96.png">
+
+$${\color{#C0C0C0}w2i}$$ $${\color{#C76F9F}always}$$ $${\color{#C0C0C0},}$$ ㅤ $${\color{#C76F9F}often busy}$$ $${\color{#C76F9F}.}$$ </br>
+
+$${\color{#C0C0C0}do not}$$ $${\color{#C76F9F}copy my}$$ $${\color{#C0C0C0}skins}$$ ㅤ $${\color{#C76F9F}w/o}$$ $${\color{#C76F9F}permissions}$$ </br>
+
+
