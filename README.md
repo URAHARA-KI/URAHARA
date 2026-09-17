@@ -3,12 +3,6 @@
 
 </br>
 
-<div align="center">
-
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=C76F9F&style=flat-square&label=(:3)+:&base=767676)
-
-</br>
-
 <div align=center">
 <img align="center" width="300" src="https://img.sanishtech.com/u/502f179faff09b0821eab4b7a7b9d6cb.png">
 
