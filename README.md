@@ -2,7 +2,7 @@
 </br>
 
 <div align="center">
-<img align="center" width="400" src="https://img.sanishtech.com/u/68443b0b36b9cb14cbc19b4ef6f478bf.png">
+<img align="center" width="450" src="https://img.sanishtech.com/u/68443b0b36b9cb14cbc19b4ef6f478bf.png">
 
 <img align="center" width="300" src="https://img.sanishtech.com/u/4fc6da30eb0cbd2ca8c28e2ada7dc0b6.png">
 
@@ -73,6 +73,6 @@ sya95059ㅤEmeraldWan34590ㅤppack04
 ![](https://komarev.com/ghpvc/?username=CATAL0G&color=000000&style=flat-square&label=ღ+:&base=767676)
 
 <div align="center">
-<img align="center" width="400" src="https://img.sanishtech.com/u/0271ab9071beb2a46274e7cd7c9a50e9.png">
+<img align="center" width="450" src="https://img.sanishtech.com/u/0271ab9071beb2a46274e7cd7c9a50e9.png">
 
 
