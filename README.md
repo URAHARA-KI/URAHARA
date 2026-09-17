@@ -9,7 +9,7 @@
 
 <div align=center">
 
-<img align="center" width="300" src="https://img.sanishtech.com/u/502f179faff09b0821eab4b7a7b9d6cb.png">
+<img align="center" width="400" src="https://img.sanishtech.com/u/502f179faff09b0821eab4b7a7b9d6cb.png">
 
 </br>
 
@@ -17,7 +17,7 @@
 
 <div align=center">
 
-<img align="center" width="200" src="https://img.sanishtech.com/u/b2809a3b9321fb74c2427312be3e7cbc.png">
+<img align="center" width="300" src="https://img.sanishtech.com/u/b2809a3b9321fb74c2427312be3e7cbc.png">
 
 $${\color{#C76F9F}jess}$$ $${\color{#C0C0C0}or}$$ $${\color{#C76F9F}dawn}$$ ㅤ $${\color{#C0C0C0}♡ྀི}$$ $${\color{#C76F9F}fndms dniuid}$$ </br>
 
