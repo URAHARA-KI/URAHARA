@@ -13,7 +13,7 @@
 
 </br>
 
-<div align=center">
+</br>
 
 $${\color{#C76F9F}jess}$$ $${\color{#C0C0C0}or}$$ $${\color{#C76F9F}dawn}$$ ㅤ $${\color{#C0C0C0}♡ྀི}$$ $${\color{#C76F9F}fndms dniuid}$$ </br>
 
