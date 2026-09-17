@@ -2,7 +2,7 @@
 </br>
 
 <div align="center">
-<img align="center" width="300" src="https://img.sanishtech.com/u/68443b0b36b9cb14cbc19b4ef6f478bf.png">
+<img align="center" width="400" src="https://img.sanishtech.com/u/68443b0b36b9cb14cbc19b4ef6f478bf.png">
 
 <div align="center">
 <img align="center" width="300" src="https://img.sanishtech.com/u/4fc6da30eb0cbd2ca8c28e2ada7dc0b6.png">
