@@ -1,5 +1,5 @@
 <div align=center">
-<img align="center" width="200" src="https://img.sanishtech.com/u/bddf79139b126621772490729c7405bb.png">
+<img align="center" width="300" src="https://img.sanishtech.com/u/bddf79139b126621772490729c7405bb.png">
 
 <div align="center">
 
