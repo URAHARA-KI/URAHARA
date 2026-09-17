@@ -1,6 +1,3 @@
-<div align=center">
-
-<img src="https://img.sanishtech.com/u/bddf79139b126621772490729c7405bb.png">
 
 </br>
 
@@ -70,7 +67,7 @@ LUO
 
 <div align="center">
 
-<img src="https://img.sanishtech.com/u/e3e1ff7f8450e328d4460c5ae5e7a66f.png">
+────────────────────────
 
 <div align=center">
 <img align="center" width="200" src="https://img.sanishtech.com/u/c1858fd4e57f818b2716ab6c300f910e.png">
