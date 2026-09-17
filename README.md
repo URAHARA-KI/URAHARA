@@ -47,4 +47,15 @@ $${\color{#C0C0C0}i'm}$$ $${\color{#C76F9F}still}$$ $${\color{#C0C0C0}rocking}$$
 
 <img align="center" width="300" src="https://img.sanishtech.com/u/4fc6da30eb0cbd2ca8c28e2ada7dc0b6.png">
 
+</br>
+
+<div align="center">
+
+<img align="center" width="300" src="https://img.sanishtech.com/u/43198be72d8f2c2c210535b803a6e49e.png">
+
+$${\color{#C0C0C0}respectfully}$$ $${\color{#C76F9F}do not}$$ $${\color{#C0C0C0}copy}$$ ㅤ $${\color{#C76F9F}my skins}$$ $${\color{#C76F9F}.}$$ </br>
+
+$${\color{#C0C0C0}basic dnis, }$$ $${\color{#C76F9F}heavy social}$$ $${\color{#C0C0C0}anxiety}$$ ㅤ $${\color{#C76F9F}-15 dnis}$$ $${\color{#C76F9F}ღ}$$ </br>
+
+
 
