@@ -1,6 +1,10 @@
 
 </br>
 
+<div align="center">
+
+![](https://komarev.com/ghpvc/?username=CATAL0G&color=000000&style=flat-square&label=ღ+:&base=767676)
+
 </br>
 
 <div align=center">
