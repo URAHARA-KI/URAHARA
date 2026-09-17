@@ -1,3 +1,6 @@
+<div align=center">
+<img align="center" width="200" src="https://img.sanishtech.com/u/bddf79139b126621772490729c7405bb.png">
+
 <div align="center">
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cormorant&weight=300&size=17&duration=3015&pause=10&color=C76F9F&center=true&width=500&lines=my+moon;the+moon+and+my+man;my+moon;the+moon+and;my+MAN.." alt="Typing SVG" /></a>
