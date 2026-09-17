@@ -75,6 +75,7 @@ LUO
 <div align=center">
 <img align="center" width="200" src="https://img.sanishtech.com/u/c1858fd4e57f818b2716ab6c300f910e.png">
 
-idk what else to add oke bye
+$${\color{#C0C0C0}idk}$$ $${\color{#C76F9F}what else}$$ $${\color{#C0C0C0}to add}$$ ㅤ $${\color{#C76F9F}lmfao}$$ $${\color{#C76F9F}.}$$ </br>
+
 
 
