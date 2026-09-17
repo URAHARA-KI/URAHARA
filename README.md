@@ -6,7 +6,7 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=flat-square&label=((⁠•⁠‿⁠•⁠))+:&base=767676)
+![](https://komarev.com/ghpvc/?username=cemetery-girl&color=C76F9F&style=flat-square&label=((⁠•⁠‿⁠•⁠))+:&base=767676)
 
 </br>
 
