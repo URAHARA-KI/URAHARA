@@ -4,7 +4,7 @@
 
 <div align="center">
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cormorant&weight=300&size=17&duration=3015&pause=10&color=C76F9F&center=true&width=500&lines=my+moon;the+moon+and+my+man;my+moon;the+moon+and;my+MAN.." alt="Typing SVG" /></a>
+![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=flat-square&label=((⁠•⁠‿⁠•⁠))+:&base=767676)
 
 <div align=center">
 <img align="left" width="200" src="https://img.sanishtech.com/u/4dce7a751e8eb9109c8ffe3e46cd5bd5.png">
