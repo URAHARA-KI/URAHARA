@@ -59,5 +59,20 @@ $${\color{#C0C0C0}basic dnis, }$$ $${\color{#C76F9F}heavy social}$$ $${\color{#C
 
 $${\color{#C0C0C0}multifandoms,}$$ $${\color{#C76F9F}heavy exhausted}$$ $${\color{#C0C0C0}mental issues}$$ ㅤ $${\color{#C76F9F}, read rentry}$$ $${\color{#C76F9F}before you int.}$$ </br>
 
+</br>
+
+art credits(on x):
+
+sya95059
+
+EmeraldWan34590
+
+ppack04
+
+<div align="center">
+
+<img align="center" width="300" src="https://img.sanishtech.com/u/4fc6da30eb0cbd2ca8c28e2ada7dc0b6.png">
+
+
 
 
