@@ -72,6 +72,8 @@ LUO
 <div align=center">
 <img align="center" width="200" src="https://img.sanishtech.com/u/c1858fd4e57f818b2716ab6c300f910e.png">
 
+$${\color{#C0C0C0}take}$$ $${\color{#C76F9F}it slowㅤ}$$ $${\color{#C0C0C0}take}$$ ㅤ $${\color{#C76F9F}it easy}$$ $${\color{#C76F9F}on me.}$$ </br>
+
 $${\color{#C0C0C0}idk}$$ $${\color{#C76F9F}what else}$$ $${\color{#C0C0C0}to add}$$ ㅤ $${\color{#C76F9F}lmfao}$$ $${\color{#C76F9F}.}$$ </br>
 
 
