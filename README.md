@@ -15,6 +15,10 @@
 
 </br>
 
+<div align=center">
+
+<img align="center" width="200" src="https://img.sanishtech.com/u/b2809a3b9321fb74c2427312be3e7cbc.png">
+
 $${\color{#C76F9F}jess}$$ $${\color{#C0C0C0}or}$$ $${\color{#C76F9F}dawn}$$ ㅤ $${\color{#C0C0C0}♡ྀི}$$ $${\color{#C76F9F}fndms dniuid}$$ </br>
 
 $${\color{#C0C0C0}check}$$ $${\color{#C76F9F}my}$$ $${\color{#C0C0C0}rentry}$$ ㅤ $${\color{#C76F9F}and sign}$$ $${\color{#C76F9F}my straw}$$ </br>
