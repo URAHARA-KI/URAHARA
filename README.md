@@ -63,11 +63,7 @@ $${\color{#C0C0C0}multifandoms,}$$ $${\color{#C76F9F}heavy exhausted}$$ $${\colo
 
 art credits(on x):
 
-sya95059
-
-EmeraldWan34590
-
-ppack04
+sya95059ㅤEmeraldWan34590ㅤppack04
 
 <div align="center">
 
