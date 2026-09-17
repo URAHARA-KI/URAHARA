@@ -57,5 +57,7 @@ $${\color{#C0C0C0}respectfully}$$ $${\color{#C76F9F}do not}$$ $${\color{#C0C0C0}
 
 $${\color{#C0C0C0}basic dnis, }$$ $${\color{#C76F9F}heavy social}$$ $${\color{#C0C0C0}anxiety}$$ ㅤ $${\color{#C76F9F}-15 dnis}$$ $${\color{#C76F9F}ღ}$$ </br>
 
+$${\color{#C0C0C0}multifandoms,}$$ $${\color{#C76F9F}heavy exhausted}$$ $${\color{#C0C0C0}mental issues}$$ ㅤ $${\color{#C76F9F}, read rentry}$$ $${\color{#C76F9F}before you int.}$$ </br>
+
 
 
