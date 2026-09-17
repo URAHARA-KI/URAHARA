@@ -69,6 +69,8 @@ sya95059ㅤEmeraldWan34590ㅤppack04
 
 <img align="center" width="300" src="https://img.sanishtech.com/u/4fc6da30eb0cbd2ca8c28e2ada7dc0b6.png">
 
+![](https://komarev.com/ghpvc/?username=CATAL0G&color=000000&style=flat-square&label=ღ+:&base=767676)
+
 
 
 
