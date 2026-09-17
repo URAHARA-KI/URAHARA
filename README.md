@@ -19,9 +19,9 @@
 
 </br>
 
-$${\color{#C76F9F}jess}$$ $${\color{#C0C0C0}or}$$ $${\color{#C76F9F}dawn}$$ ㅤ $${\color{#C0C0C0}♡ྀི}$$ $${\color{#C76F9F}fndms dniuid}$$ </br>
+$${\color{#EFAEB9}jess}$$ $${\color{#AFA1C6}or}$$ $${\color{#EFAEB9}dawn}$$ ㅤ $${\color{#AFA1C6}♡ྀི}$$ $${\color{#EFAEB9}fndms dniuid}$$ </br>
 
-$${\color{#C0C0C0}check}$$ $${\color{#C76F9F}my}$$ $${\color{#C0C0C0}rentry}$$ ㅤ $${\color{#C76F9F}and sign}$$ $${\color{#C76F9F}my straw}$$ </br>
+$${\color{#AFA1C6}check}$$ $${\color{#EFAEB9}my}$$ $${\color{#AFA1C6}rentry}$$ ㅤ $${\color{#EFAEB9}and sign}$$ $${\color{#C76F9F}AFA1C6}$$ </br>
 
 [*rentry*](https://rentry.co/lightmax)ㅤㅤ [*strawpage*](https://httpsdawnangelstrawpage.straw.page)
 
@@ -43,9 +43,9 @@ $${\color{#C0C0C0}check}$$ $${\color{#C76F9F}my}$$ $${\color{#C0C0C0}rentry}$$ �
 
 </br>
 
-$${\color{#C0C0C0}even}$$ $${\color{#C76F9F}though}$$ $${\color{#C0C0C0}its}$$ ㅤ $${\color{#C76F9F}hurts}$$ $${\color{#C76F9F}.}$$ </br>
+$${\color{#EFAEB9}even}$$ $${\color{#AFA1C6}though}$$ $${\color{#EFAEB9}its}$$ ㅤ $${\color{#AFA1C6}hurts}$$ $${\color{#EFAEB9}.}$$ </br>
 
-$${\color{#C0C0C0}i'm}$$ $${\color{#C76F9F}still}$$ $${\color{#C0C0C0}rocking}$$ ㅤ $${\color{#C76F9F}your body}$$ $${\color{#C76F9F}.}$$ </br>
+$${\color{#AFA1C6}i'm}$$ $${\color{#EFAEB9}still}$$ $${\color{#AFA1C6}rocking}$$ ㅤ $${\color{#EFAEB9}your body}$$ $${\color{#AFA1C6}.}$$ </br>
 
 <div align="center">
 
@@ -57,11 +57,11 @@ $${\color{#C0C0C0}i'm}$$ $${\color{#C76F9F}still}$$ $${\color{#C0C0C0}rocking}$$
 
 <img align="left" width="300" src="https://img.sanishtech.com/u/43198be72d8f2c2c210535b803a6e49e.png">
 
-$${\color{#C0C0C0}respectfully}$$ $${\color{#C76F9F}do not}$$ $${\color{#C0C0C0}copy}$$ ㅤ $${\color{#C76F9F}my skins}$$ $${\color{#C76F9F}.}$$ </br>
+$${\color{#EFAEB9}respectfully}$$ $${\color{#AFA1C6}do not}$$ $${\color{#EFAEB9}copy}$$ ㅤ $${\color{#AFA1C6}my skins}$$ $${\color{#EFAEB9}.}$$ </br>
 
-$${\color{#C0C0C0}basic dnis, }$$ $${\color{#C76F9F}heavy social}$$ $${\color{#C0C0C0}anxiety}$$ ㅤ $${\color{#C76F9F}-15 dnis}$$ $${\color{#C76F9F}ღ}$$ </br>
+$${\color{#AFA1C6}basic dnis, }$$ $${\color{#EFAEB9}heavy social}$$ $${\color{#AFA1C6}anxiety}$$ ㅤ $${\color{#EFAEB9}-15 dnis}$$ $${\color{#AFA1C6}ღ}$$ </br>
 
-$${\color{#C0C0C0}multifandoms,}$$ $${\color{#C76F9F}heavy exhausted}$$ $${\color{#C0C0C0}mental issues}$$ ㅤ $${\color{#C76F9F}, read rentry}$$ $${\color{#C76F9F}before you int.}$$ </br>
+$${\color{#EFAEB9}multifandoms,}$$ $${\color{#AFA1C6}heavy exhausted}$$ $${\color{#EFAEB9}mental issues}$$ ㅤ $${\color{#AFA1C6}, read rentry}$$ $${\color{#EFAEB9}before you int.}$$ </br>
 
 </br>
 
