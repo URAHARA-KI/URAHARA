@@ -3,7 +3,7 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=000000&style=flat-square&label=ღ+:&base=767676)
+<img align="center" width="300" src="https://img.sanishtech.com/u/4fc6da30eb0cbd2ca8c28e2ada7dc0b6.png">
 
 </br>
 
@@ -14,8 +14,6 @@
 </br>
 
 <div align=center">
-
-<img align="center" width="300" src="https://img.sanishtech.com/u/b2809a3b9321fb74c2427312be3e7cbc.png">
 
 $${\color{#C76F9F}jess}$$ $${\color{#C0C0C0}or}$$ $${\color{#C76F9F}dawn}$$ ㅤ $${\color{#C0C0C0}♡ྀི}$$ $${\color{#C76F9F}fndms dniuid}$$ </br>
 
