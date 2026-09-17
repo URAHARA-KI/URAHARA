@@ -2,9 +2,13 @@
 
 <img src="https://img.sanishtech.com/u/bddf79139b126621772490729c7405bb.png">
 
+</br>
+
 <div align="center">
 
 ![](https://komarev.com/ghpvc/?username=cemetery-girl&color=000000&style=flat-square&label=((⁠•⁠‿⁠•⁠))+:&base=767676)
+
+</br>
 
 <div align=center">
 <img align="left" width="200" src="https://img.sanishtech.com/u/4dce7a751e8eb9109c8ffe3e46cd5bd5.png">
