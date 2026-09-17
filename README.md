@@ -31,4 +31,17 @@ $${\color{#C0C0C0}check}$$ $${\color{#C76F9F}my}$$ $${\color{#C0C0C0}rentry}$$ �
 
 ————————————————————
 
+<div align="center">
+
+<img align="center" width="300" src="https://img.sanishtech.com/u/af52de260b373fb2205e2959d93bfb50.png">
+
+</br>
+
+</br>
+
+$${\color{#C0C0C0}even}$$ $${\color{#C76F9F}though}$$ $${\color{#C0C0C0}its}$$ ㅤ $${\color{#C76F9F}hurts}$$ $${\color{#C76F9F}.}$$ </br>
+
+$${\color{#C0C0C0}i'm}$$ $${\color{#C76F9F}still}$$ $${\color{#C0C0C0}rocking}$$ ㅤ $${\color{#C76F9F}your body}$$ $${\color{#C76F9F}.}$$ </br>
+
+
 
