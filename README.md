@@ -33,7 +33,7 @@ $${\color{#C0C0C0}check}$$ $${\color{#C76F9F}my}$$ $${\color{#C0C0C0}rentry}$$ ã
 
 <div align="center">
 
-<img align="center" width="300" src="https://img.sanishtech.com/u/af52de260b373fb2205e2959d93bfb50.png">
+<img align="right" width="300" src="https://img.sanishtech.com/u/af52de260b373fb2205e2959d93bfb50.png">
 
 </br>
 
@@ -51,7 +51,7 @@ $${\color{#C0C0C0}i'm}$$ $${\color{#C76F9F}still}$$ $${\color{#C0C0C0}rocking}$$
 
 <div align="center">
 
-<img align="center" width="300" src="https://img.sanishtech.com/u/43198be72d8f2c2c210535b803a6e49e.png">
+<img align="left" width="300" src="https://img.sanishtech.com/u/43198be72d8f2c2c210535b803a6e49e.png">
 
 $${\color{#C0C0C0}respectfully}$$ $${\color{#C76F9F}do not}$$ $${\color{#C0C0C0}copy}$$ ã…¤ $${\color{#C76F9F}my skins}$$ $${\color{#C76F9F}.}$$ </br>
 
