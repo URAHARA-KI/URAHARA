@@ -48,33 +48,5 @@ $${\color{#AFA1C6}i'm}$$ $${\color{#EFAEB9}still}$$ $${\color{#AFA1C6}rocking}$$
 
 </br>
 
-<div align="center">
-
-<img align="left" width="300" src="https://img.sanishtech.com/u/43198be72d8f2c2c210535b803a6e49e.png">
-
-$${\color{#EFAEB9}respectfully}$$ $${\color{#AFA1C6}do not}$$ $${\color{#EFAEB9}copy}$$ ㅤ $${\color{#AFA1C6}my skins}$$ $${\color{#EFAEB9}.}$$ </br>
-
-$${\color{#AFA1C6}basic dnis, }$$ $${\color{#EFAEB9}heavy social}$$ $${\color{#AFA1C6}anxiety}$$ ㅤ $${\color{#EFAEB9}-15 dnis}$$ $${\color{#AFA1C6}ღ}$$ </br>
-
-$${\color{#EFAEB9}multifandoms,}$$ $${\color{#AFA1C6}heavy exhausted}$$ $${\color{#EFAEB9}mental issues}$$ ㅤ $${\color{#AFA1C6}, read rentry}$$ $${\color{#EFAEB9}before you int.}$$ </br>
-
-</br>
-
-art credits(on x):
-
-sya95059ㅤEmeraldWan34590ㅤppack04
-
-<div align="center">
-
-<img align="center" width="300" src="https://img.sanishtech.com/u/4fc6da30eb0cbd2ca8c28e2ada7dc0b6.png">
-
-<div align="center">
-<img align="center" width="450" src="https://img.sanishtech.com/u/0271ab9071beb2a46274e7cd7c9a50e9.png">
-
-</br>
-
-</br>
-
-![](https://komarev.com/ghpvc/?username=CATAL0G&color=000000&style=flat-square&label=ღ+:&base=767676)
 
 
