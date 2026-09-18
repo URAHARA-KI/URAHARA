@@ -26,8 +26,6 @@ $${\color{#AFA1C6}check}$$ $${\color{#EFAEB9}my}$$ $${\color{#AFA1C6}rentry}$$ �
 
 ————————————————————
 
-[*pt-stars*](https://github.com/pt-stars)ㅤ[*pt-fashion*](https://github.com/pt-fashion)ㅤ[*pt-friendships*](https://github.com/pt-friendships)
-
 <div align="center">
 
 ————————————————————
