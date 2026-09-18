@@ -56,7 +56,7 @@ $${\color{#AFA1C6}i'm}$$ $${\color{#EFAEB9}still}$$ $${\color{#AFA1C6}rocking}$$
 
 <div align="center">
 
-<img align="center" width="300" src="https://img.sanishtech.com/u/cd317d261ea5f0beee312419af46a615.png">
+<img align="center" width="200" src="https://img.sanishtech.com/u/cd317d261ea5f0beee312419af46a615.png">
 
 </br>
 
