@@ -4,7 +4,7 @@
 <div align="center">
 <img align="center" width="450" src="https://img.sanishtech.com/u/68443b0b36b9cb14cbc19b4ef6f478bf.png">
 
-<img align="center" width="300" src="https://img.sanishtech.com/u/4fc6da30eb0cbd2ca8c28e2ada7dc0b6.png">
+<img align="center" width="300" src="https://img.sanishtech.com/u/a45dc6e4ea4d040d806dc4b65a7e51b8.png">
 
 </br>
 
@@ -32,7 +32,7 @@ $${\color{#AFA1C6}check}$$ $${\color{#EFAEB9}my}$$ $${\color{#AFA1C6}rentry}$$ ã
 
 <div align="center">
 
-<img align="right" width="300" src="https://img.sanishtech.com/u/af52de260b373fb2205e2959d93bfb50.png">
+<img align="center" width="300" src="https://img.sanishtech.com/u/9c500f6193d9d5779bde8d002c736de2.png">
 
 </br>
 
