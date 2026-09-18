@@ -54,5 +54,13 @@ $${\color{#AFA1C6}i'm}$$ $${\color{#EFAEB9}still}$$ $${\color{#AFA1C6}rocking}$$
 
 <img align="center" width="300" src="https://img.sanishtech.com/u/7db7c5d7b3e84320e963040d273f0b19.png">
 
+<div align="center">
+
+<img align="center" width="300" src="https://img.sanishtech.com/u/cd317d261ea5f0beee312419af46a615.png">
+
+</br>
+
+$${\color{#EFAEB9}multifandoms,}$$ $${\color{#AFA1C6}heavy exhausted}$$ $${\color{#EFAEB9}mental issues}$$ ㅤ $${\color{#AFA1C6}, read rentry}$$ $${\color{#EFAEB9}before you int.}$$ </br>
+
 
 
