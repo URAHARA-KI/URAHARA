@@ -4,13 +4,11 @@
 <div align="center">
 <img align="center" width="450" src="https://img.sanishtech.com/u/68443b0b36b9cb14cbc19b4ef6f478bf.png">
 
+<img align="center" width="300" src="https://img.sanishtech.com/u/9c500f6193d9d5779bde8d002c736de2.png">
+
+<div align="center">
+
 <img align="center" width="300" src="https://img.sanishtech.com/u/a45dc6e4ea4d040d806dc4b65a7e51b8.png">
-
-</br>
-
-<div align=center">
-
-<img align="center" width="400" src="https://img.sanishtech.com/u/502f179faff09b0821eab4b7a7b9d6cb.png">
 
 </br>
 
