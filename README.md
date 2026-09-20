@@ -20,7 +20,9 @@
 
 </br>
 
-<img align="center" width="200" src="https://img.sanishtech.com/u/0934d90bac5858fb8c112b0a84557f1d.png">
+</br>
+
+<img align="center" width="100" src="https://img.sanishtech.com/u/0934d90bac5858fb8c112b0a84557f1d.png">
 
 
 
