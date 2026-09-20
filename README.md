@@ -22,7 +22,7 @@
 
 </br>
 
-<img align="center" width="100" src="https://img.sanishtech.com/u/0934d90bac5858fb8c112b0a84557f1d.png">
+<img align="center" width="200" src="https://img.sanishtech.com/u/0934d90bac5858fb8c112b0a84557f1d.png">
 
 <img align="center" width="200" src="https://img.sanishtech.com/u/d04d8f092cd1ffd51e32eb93b4eeca89.png">
 
