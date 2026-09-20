@@ -38,6 +38,9 @@
 
 [01](https://rentry.co/chainuserss)ㅤ[02](https://httpsdawnangelstrawpage.straw.page)ㅤ[03](https://httpsonepiecestrawpage.straw.page)
 
+</br>
+
+[art credits](https://x.com/EmeraldWan34590)
 
 
 
