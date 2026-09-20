@@ -24,7 +24,7 @@ $${\color{#EFAEB9}jess}$$ $${\color{#AFA1C6}or}$$ $${\color{#EFAEB9}dawn}$$ ㅤ 
 
 $${\color{#AFA1C6}check}$$ $${\color{#EFAEB9}my}$$ $${\color{#AFA1C6}rentry}$$ ㅤ $${\color{#EFAEB9}and sign}$$ $${\color{#C76F9F}AFA1C6}$$ </br>
 
-[*rentry*](https://rentry.co/heartchains)ㅤㅤ [*strawpage*](https://httpsdawnangelstrawpage.straw.page)
+[*rentry*](https://rentry.co/chainuserss)ㅤㅤ [*strawpage*](https://httpsdawnangelstrawpage.straw.page)
 
 <div align="center">
 
