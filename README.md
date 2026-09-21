@@ -52,7 +52,7 @@
 
 <div align="center">
 
-<img align="center" width="200" src="https://img.sanishtech.com/u/49560e52fcaeb398b34c66803a6f676b.jpg">
+<img align="center" width="300" src="https://img.sanishtech.com/u/49560e52fcaeb398b34c66803a6f676b.jpg">
 
 
 
