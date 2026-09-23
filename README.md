@@ -34,7 +34,7 @@
 
 </br>
 
-[art credits](https://x.com/EmeraldWan3459)
+[art credits](https://x.com/just_minhthi)
 
 </br>
 
