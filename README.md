@@ -24,14 +24,6 @@
 
 <div align="center">
 
-<img align="center" width="200" src="https://img.sanishtech.com/u/9bc8a51173fa0d708acd04af6e2ce13e.png">
-
-</br>
-
-</br>
-
-<div align="center">
-
 [01](https://rentry.co/chainuserss)ㅤ[02](https://httpsdawnangelstrawpage.straw.page)ㅤ[03](https://httpsonepiecestrawpage.straw.page)
 
 </br>
@@ -40,7 +32,7 @@
 
 <div align="center">
 
-<img align="center" width="30" src="https://img.sanishtech.com/u/eb9cffcc6b9fa4d6a8947e5767c2ec79.png">
+<img align="center" width="30" src="https://img.sanishtech.com/u/9bc8a51173fa0d708acd04af6e2ce13e.png">
 
 </br>
 
