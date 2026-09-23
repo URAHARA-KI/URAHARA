@@ -8,13 +8,13 @@
 
 <div align="center">
 
-<img align="center" width="200" src="https://img.sanishtech.com/u/d7890897974aa2f4a93911f879c92be4.png">
+<img align="center" width="200" src="https://img.sanishtech.com/u/17023cf84f932f39e57f033111c49c93.png">
 
-<img align="center" width="300" src="https://img.sanishtech.com/u/744fe2336e35f0244c28d0dde11de760.png">
+<img align="center" width="300" src="https://img.sanishtech.com/u/4fc822814bf4331d6cc322b496ded17e.png">
 
 <div align="center">
 
-<img align="center" width="200" src="https://img.sanishtech.com/u/406cf1db1b54c3ba91f094f21abd91d5.png">
+<img align="center" width="200" src="https://img.sanishtech.com/u/299061778582a4592e8c203dc5b99adf.png">
 
 </br>
 
