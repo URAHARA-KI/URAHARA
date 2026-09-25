@@ -10,7 +10,7 @@
 
 <img align="center" width="100" src="https://img.sanishtech.com/u/17023cf84f932f39e57f033111c49c93.png">
 
-<img align="center" width="300" src="https://img.sanishtech.com/u/4fc822814bf4331d6cc322b496ded17e.png">
+<img align="center" width="300" src="https://img.sanishtech.com/u/02ca6cc519c75b835cc697c5b6793092.png">
 
 <div align="center">
 
